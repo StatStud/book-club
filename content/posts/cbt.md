@@ -14,15 +14,18 @@ cover:
 
 ## One Sentence Summary
 
+## One paragraph Summary
+
 - We *feel* the way they think
+- Ask yourself: 
+    - "What evidence do I have to support my thinking?"
+    - "What evidence am I collecting to validate my thoughts (is it only the negative side)?
+    - "What kind of evidence are my actions producing? Is this evidence supporting a belief that I support?"
 - The quality of our thinking determines the qualities of our feelings; which influence the quality of our actions
 - The **meanings** we assign to events have a great deal to do with how we ultimately *feel* about those events
     - This same meaning is attached to the names we call ourselves
     - Fortunately, **you** get to **choose** what messages you give to yourself and, therefore, choose how you think and feel about yourself
     - My *one action* may be silly, but it does not make *me*, as a collection of all my other smart moves, dumb.
-
-
-## One paragraph Summary
 
 # Part 1: Introducing CBT Basics
 ## Chapter 1: You Feel the way you Think

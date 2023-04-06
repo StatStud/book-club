@@ -1,0 +1,20 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+  <channel>
+    <title>books on My New Hugo Site</title>
+    <link>http://example.org/tags/books/</link>
+    <description>Recent content in books on My New Hugo Site</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en-us</language>
+    <lastBuildDate>Mon, 27 Mar 2023 20:25:02 -0400</lastBuildDate><atom:link href="http://example.org/tags/books/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>Cognitive Behavioral Therapy</title>
+      <link>http://example.org/posts/cbt/</link>
+      <pubDate>Mon, 27 Mar 2023 20:25:02 -0400</pubDate>
+      
+      <guid>http://example.org/posts/cbt/</guid>
+      <description>Summary One Sentence Summary We feel the way they think The quality of our thinking determines the qualities of our feelings; which influence the quality of our actions The meanings we assign to events have a great deal to do with how we ultimately feel about those events This same meaning is attached to the names we call ourselves Fortunately, you get to choose what messages you give to yourself and, therefore, choose how you think and feel about yourself My one action may be silly, but it does not make me, as a collection of all my other smart moves, dumb.</description>
+    </item>
+    
+  </channel>
+</rss>

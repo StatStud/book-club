@@ -1,0 +1,72 @@
+<?xml version="1.0" encoding="utf-8" standalone="yes"?>
+<rss version="2.0" xmlns:atom="http://www.w3.org/2005/Atom" xmlns:content="http://purl.org/rss/1.0/modules/content/">
+  <channel>
+    <title>Posts on My New Hugo Site</title>
+    <link>http://example.org/posts/</link>
+    <description>Recent content in Posts on My New Hugo Site</description>
+    <generator>Hugo -- gohugo.io</generator>
+    <language>en-us</language>
+    <lastBuildDate>Mon, 27 Mar 2023 20:25:02 -0400</lastBuildDate><atom:link href="http://example.org/posts/index.xml" rel="self" type="application/rss+xml" />
+    <item>
+      <title>Cognitive Behavioral Therapy</title>
+      <link>http://example.org/posts/cbt/</link>
+      <pubDate>Mon, 27 Mar 2023 20:25:02 -0400</pubDate>
+      
+      <guid>http://example.org/posts/cbt/</guid>
+      <description>Summary One Sentence Summary We feel the way they think The quality of our thinking determines the qualities of our feelings; which influence the quality of our actions The meanings we assign to events have a great deal to do with how we ultimately feel about those events This same meaning is attached to the names we call ourselves Fortunately, you get to choose what messages you give to yourself and, therefore, choose how you think and feel about yourself My one action may be silly, but it does not make me, as a collection of all my other smart moves, dumb.</description>
+    </item>
+    
+    <item>
+      <title>Python</title>
+      <link>http://example.org/posts/python/</link>
+      <pubDate>Sat, 18 Mar 2023 19:38:09 -0400</pubDate>
+      
+      <guid>http://example.org/posts/python/</guid>
+      <description>Here is my first draft of what I have.
+import numpy as np print(&amp;#39;hello world&amp;#39;) np.mean([1,2,4,8,16,32]) </description>
+    </item>
+    
+    <item>
+      <title>Yeet</title>
+      <link>http://example.org/posts/yeet/</link>
+      <pubDate>Sat, 18 Mar 2023 14:25:57 -0400</pubDate>
+      
+      <guid>http://example.org/posts/yeet/</guid>
+      <description>What are langauge models How do language models work the mathamatics of models computational linguistics Building a transformer from scrtach pytorch conda enviroment linux setup conda updates conda installs tenssy flow </description>
+    </item>
+    
+    <item>
+      <title>Links</title>
+      <link>http://example.org/posts/links/</link>
+      <pubDate>Sat, 18 Mar 2023 11:42:20 -0400</pubDate>
+      
+      <guid>http://example.org/posts/links/</guid>
+      <description>Introduction This is where I will try working with links.
+Visit the Hugo for more details.
+Alternatively, you can visit my home page to learn more about my querky setup!
+And here is where I can open the link in a new tab </description>
+    </item>
+    
+    <item>
+      <title>Second</title>
+      <link>http://example.org/posts/second/</link>
+      <pubDate>Sat, 18 Mar 2023 11:37:38 -0400</pubDate>
+      
+      <guid>http://example.org/posts/second/</guid>
+      <description>A new beginning This is the first blog post that I will post. Actually no, it&amp;rsquo;s the second.
+I am adding a new line here. I wonder if Hugo will automaticaly detect new lines
+mayeb I&amp;rsquo;ll make a list
+yeet beet meet neet </description>
+    </item>
+    
+    <item>
+      <title>First</title>
+      <link>http://example.org/posts/first/</link>
+      <pubDate>Sat, 11 Mar 2023 13:50:27 -0500</pubDate>
+      
+      <guid>http://example.org/posts/first/</guid>
+      <description>Please work :)</description>
+    </item>
+    
+  </channel>
+</rss>

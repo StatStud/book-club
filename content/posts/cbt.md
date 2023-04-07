@@ -563,6 +563,62 @@ Read them, re-read them, think them through, and put them to the test through ac
 
 ## Chapter 21: Ten Self-Esteem Boosters That Don't Work
 
+We know the 10 things **to do**, so now here are the 10 things to **not** do.
+
+1. Putting others down 
+    - Though I think I don't do this, I think it's important for me to realize that people may not be thinking about the same things I do
+    - I'm not smarter than someone else just because I  know something technical, I'm simply knowledgeable in one area of my life
+    - If I'm so smart, then when not teach the person what I know for free?
+2. Thinking you're special
+    - I fell into this trap, and I learned my lesson
+    - I'm an ordinary guy who is humble to learn as much as I can
+3. Trying to get everyone to like you
+    - Do good work, rather than simply being a good person
+    - Be someone of value first
+4. Placing Yourself above criticism
+5. Avoiding Failure, Disapproval, Rejection, and the like
+    - I struggle with this a lot because I don't want to hurt my image
+    - Then I realized: my 20s are the best time to look stupid
+6. Avoiding your emotions
+    - I'm guilty of this as well--suppressing and compartmentalizing
+    - My emotions simply reflect my thinking
+    - Emotions also come and go
+7. Attempting to feel more significant by controlling others
+8. Over-defending your self-worth
+    - Find a healthy balance between being a doormat and being aggressive
+9. Feeling Superior
+    - Again, treat everyone as an equal; it does not cost me anything to show respect to anyone; we are all born with respect
+10. Blaming Nature or Nurture for your problems
+    - I hate to admit this, but I made this mistake
+    - I am forever grateful of my upbringing
+
+## Chapter 22: Ten Ways to Lighten Up
+
+1. Accept that you can, and will, make mistakes
+2. Try something new
+3. Stamp on Shame
+4. Laugh at yourself
+5. Don't take offense so easily
+6. Make good use of criticism
+    - if it's true, why should it bother you?
+    - use it as self-improvement!
+7. Settle into Social Situations
+8. Encourage your creativity to flow
+9. Act Adventurously
+10. Enjoy yourself: It's your life!
+
+## Chapter 23: Ten Books to Add to Your Library
+
+1. "Cognitive Therapy - Basics and Beyond", by Judith S. Beck
+2. "Cognitive Therapy and the Emotional Disorders", by Aaron T. Beck
+3. "Full Catastrophe Living", by Jon Kabat-Zinn
+4. "Overcoming" book series, by Robinson Press
+5. "Overcoming Anger", by Windy Dryden
+6. "Oxford Guide to Behavioral Experiments in Cognitive Therapy", by James Bennett-Levy
+7. "Reason and Emotion in Psychotherapy", by Dr. Albert Ellis
+8. "Reinventing your life", by Jeffrey E. Young
+9. "Status Anxiety", by Alain De Botton
+10. "A woman in your own right", by Anne Dickson
 
 
 

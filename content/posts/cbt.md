@@ -26,6 +26,7 @@ cover:
     - This same meaning is attached to the names we call ourselves
     - Fortunately, **you** get to **choose** what messages you give to yourself and, therefore, choose how you think and feel about yourself
     - My *one action* may be silly, but it does not make *me*, as a collection of all my other smart moves, dumb.
+- removing emotions from the equations, do you have evidence to support your thinking? Imagine your are defending your ideas in court, and only sound evidence is permissable.
 
 # Part 1: Introducing CBT Basics
 ## Chapter 1: You Feel the way you Think
@@ -464,5 +465,33 @@ Persist. And eventually your new path will be far more familiar.
 Treat yourself like the little brothers you watch over.
 
 ## Chapter 15: Moving New Beliefs from your Head to your Heart
+
+The point of CBT is to integrate your new, healthy methods of thinking with your mind, emotions, and ***actions**.
+
+Usually, when you fix your mind, the rest will follow through.
+
+This chapter mentions the importance of **ACTING**, which is similar to what Earl Nightingale mentioned.
+
+ACTING, ACTING, ACTING!!!.
+
+Actions speak louder than words.
+
+It's time to collect the evidence to support your new view, and this can be done by putting yourself out there and taking action. Try to find evidence that your belief is accurate.
+
+> *Imagine you're about to go into court to present to the jury arguments in defense of your new belief. Develop as many good arguments that support your new belief as you can by collecting evidence through action*
+
+![](/cbt12.jpeg)
+
+You will often have doubts. Write them down, on paper, just like the zig-zag method above, and stress-test your thinking.
+
+If you're really, really serious about making your new beliefs stick, you can **seek out** situations that put them to the test.
+
+Which situations should you seek?
+
+The situation that freaks you out if you were still operating under your old beliefs. **GO THERE**
+
+## Chapter 16: Heading for a Healthier and Happier Life
+
+
 
 # What ACTIONS/HABITS will I partake after reading this book?

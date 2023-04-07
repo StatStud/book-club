@@ -5,7 +5,7 @@ draft: false
 tags: ['books','psychology']
 ShowToc: true
 cover:
-    image: cbt1.png
+    image: cbt1.jpeg
     alt: "CBT"
     caption: ""
 ---
@@ -355,6 +355,63 @@ If you wish to reduce your stress, understand these two things:
 # Part 4: Looking Backwards and Moving Forwards
 
 ## Chapter 14: Taking a Fresh Look at Your Past
+
+CBT actually considers the past an important aspects of understanding one's problems by specifically investigating past experiences to see how these early events may still be affecting people in their **present** lives.
+
+> Our **past** experiences have an effect on how we think and function **now**
+
+We may all be carrying wounds by unpleasant events into our present and future (AKA, baggage)
+
+Core beliefs are called core because they're deeply held ideas and they're at the very center of our belief system; they give rise to rules, demands, or assumptions, which in turn produce **automatic thoughts** 
+
+All core beliefs influence how we interact with three aspects of daily life:
+1. Beliefs about ourselves
+    - negative thoughts may lead one to self-sabotage opportunities
+    - positive thoughts may lead to one to make the most of life
+2. Beliefs about other people
+    - negative thoughts may lead to isolation and hostility
+    - positive thoughts may lead to newfound friends, family, and mastermind
+3. Beliefs about the world 
+    - negative thoughts see only poverty and unfairness 
+    - positive thoughts see the abundance in the world
+
+> *Identifying core beliefs about yourself can help you understand why you keep having the same problems*
+
+Often, core beliefs are hard to define because they're not clear statements in our head. This chapter reveals four approaches to identify core beliefs
+
+1. Downward Arrow
+    - Identify a situation that causes you to have an unhealthy negative emotion, then ask yourself: "what does this say about me?
+    - Keep going down the arrow with each belief, constantly asking yourself the meaning, until you reach a point where you can no longer think beyond the meaning--that's the core belief
+
+![](/static/cbt9.jpeg) ![](/static/cbt10.jpeg)
+
+2. Nightmares
+    - This technique is the same as arrow, but focuses on **fictional**, but visceral, dreams, instead of real-life events
+    - ask yourself what this dream means about you, people, and the world
+    - often useful if you constantly find yourself imagining the worst-case scenario or have reoccurring nightmares
+
+3. Tracking Themes
+    - This is a general, wide-view approach that works well after many ABCs have been applied
+    - essentially, look as your past ABCs and determine a consistent theme that's present
+    - same idea: what does this theme say about me, people, and the world?
+
+4. Filling in the Blanks
+    - Blunt, straightforward method
+    - grab a piece of paper, and complete the blanks:
+        1. "I am ----"
+        2. "Other people are ---"
+        3. "The world is ---"
+    - often good if you find yourself in a rut and need to mentally dump your thoughts
+
+### Why are core beliefs so important?
+
+> Core beliefs drive behavior
+
+- Positive core beliefs lead to positive behaviors
+- negative core beliefs lead to negative behaviors
+- honest core beliefs lead to honest behaviors
+- deceptive core beliefs lead to deceptive behaviors
+
 
 
 # What ACTIONS/HABITS will I partake after reading this book?

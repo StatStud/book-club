@@ -492,6 +492,28 @@ The situation that freaks you out if you were still operating under your old bel
 
 ## Chapter 16: Heading for a Healthier and Happier Life
 
+This chapter talks about the importance of having hobbies, which I certainly agree with. 
+
+Personally speaking, since this is my blog, I want to do the following hobbies:
+- Brazilian jiu-jitsu / boxing
+- Salsa Dancing
+- Acting classes
+- Golf
+- Spanish speaking classes
+- Yoga
+- cross fit
+- volunteering (nursing home)
+
+I want to do the above specifically because they involve working with other people, while increasing my social confidence to be outside.
+
+Write down a plan.
+
+Then do it.
+
+DO IT!
+
+## Chapter 17
+
 
 
 # What ACTIONS/HABITS will I partake after reading this book?

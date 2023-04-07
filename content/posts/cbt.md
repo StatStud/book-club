@@ -530,6 +530,39 @@ I skimmed this section before, but it's not something I'm personally interested 
 
 ## Chapter 20: Ten Healthy Attitudes for Living
 
+This chapter lays out 10 rules/commandments that will only improve your life.
+
+Read them, re-read them, think them through, and put them to the test through action.
+
+1. You Feel the way you think
+    - As ye show, so shall ye reap
+2. Think Flexibly
+    - Think non-dualistically
+    - It's neither good nor bad, but simply is, and net effects change with time
+3. Valuing your individuality
+    - You can be both socially intregated and true to your values by accepting yourself as an individual and by being a **selective conformist**
+4. Accepting that life can be unfair
+    - But it's the pursuit that makes it fun
+    - If shit happens, ask yourself: "what are you doing to do about it?"
+5. Understand that approval from others isn't necessary
+    - People will come and go from your life
+    - Put yourself first
+6. Realizing Love's desirable, but not Essential
+    - Love first starts from within, at the individual level, and then stills outwardly, to be shared and amplified with others
+    - to access this internal love reservoir, simply take action towards your goals
+7. Tolerating short-term discomfort
+    - This too shall pass
+8. Enacting Enlightened Self-Interest
+    - Put yourself #1; you will often be alone, and it's your life, so do what you want
+9. Pursing Interest and Acting Consistent with your Values
+    - Write down your principles
+    - Read your principles
+    - Respond to all things through your principles
+10. Tolerate Uncertainty
+    - Take calculated risks and experiments, but don't avoid risk, because the only thing that's certain in life is death
+
+## Chapter 21: Ten Self-Esteem Boosters That Don't Work
+
 
 
 

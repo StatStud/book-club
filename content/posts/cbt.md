@@ -512,7 +512,24 @@ Then do it.
 
 DO IT!
 
-## Chapter 17
+## Chapter 17: Overcoming Obstacles to Progress
+
+This chapter talks about overcoming obstacles while developing your new path.
+
+Look, you will relapse a few times, and that's okay. Get up, and move forward. It's that simple.
+
+## Chapter 18: Psychological Gardening: Maintaining your CBT Gains
+
+Not to much to comment on this chapter. It's again all about maintaining momentum on your goals.
+
+## Chapter 19: Working with Professionals
+
+I skimmed this section before, but it's not something I'm personally interested in.
+
+# Part 5: The Part of Tens
+
+## Chapter 20: Ten Healthy Attitudes for Living
+
 
 
 

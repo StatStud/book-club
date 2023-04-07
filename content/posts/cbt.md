@@ -377,7 +377,7 @@ All core beliefs influence how we interact with three aspects of daily life:
 
 > *Identifying core beliefs about yourself can help you understand why you keep having the same problems*
 
-Often, core beliefs are hard to define because they're not clear statements in our head. This chapter reveals four approaches to identify core beliefs
+Often, core beliefs are hard to define because they're not clear statements in our head. This chapter reveals five approaches to identify core beliefs
 
 1. Downward Arrow
     - Identify a situation that causes you to have an unhealthy negative emotion, then ask yourself: "what does this say about me?
@@ -403,6 +403,23 @@ Often, core beliefs are hard to define because they're not clear statements in o
         3. "The world is ---"
     - often good if you find yourself in a rut and need to mentally dump your thoughts
 
+5. Fill out the template
+    - This is a pretty easy-to-follow format that works pretty quick
+    - After competing the form, answer these final questions:
+        1. What is my negative core belief?
+        2. How does this negative core belief affect the way I interpret events?
+        3. How do I tend to act when the core belief is triggered? What is the negative behavior?
+        4. What is a more unbiased, **accurate** interpretation of these events?
+        5. What alternative behavior may be more productive?
+
+![](/static/cbt12.jpeg)
+
+
+Whichever method you choose, always answer in the context of the big three:
+1. myself
+2. other people
+3. the world
+
 ### Why are core beliefs so important?
 
 > Core beliefs drive behavior
@@ -412,6 +429,40 @@ Often, core beliefs are hard to define because they're not clear statements in o
 - honest core beliefs lead to honest behaviors
 - deceptive core beliefs lead to deceptive behaviors
 
+To evaluate whether your core beliefs are unhealthy, you must pay attention to your **corresponding behaviors**
 
+Ask yourself: "are you acting the way your ideal potential would act?"
+
+I personally love the examples the chapter provides. For example: 
+
+> "Milo operates according to his core belief about being unlovable; he behaves in ways that actually tend to drive his partners away from him. Milo doesn't yet see that his core belief, and corresponds insecure behavior, is what causes problems in his relationships. Instead, Milo thinks that each time a partner leaves him for someone else, it is further evidence that his core belief of 'I am unlovable' is true"
+
+**we act in accordance to our core beliefs**
+
+### The nature of unhealthy core beliefs
+
+![](/static/cbt11.jpeg)
+
+Unhealthy core beliefs are like living organisms; they feed on negativity, reject positivity, and may even distort positivity (as shown in above image)
+
+### The good news
+
+A problem written down is half solved; knowing the unhealthy core belief puts you in a position to develop healthier alternatives, which is the other half
+
+> generating alternatives for your unhealthy and absolute cor beliefs is not about positive thinking or platitudes, rather about generating **less absolute, more accurate, more realistic** opinions about yourself, other people, and the world around you.
+
+### Final thoughts on developing new core beliefs
+
+old beliefs are like well trodden paths through an overgrown field.
+
+Developing new core beliefs, and acting them through behavior, will be hard work, but trust that with time, anything can be fixed, and you will have a life like never before.
+
+You will be tempted to walk on the old paths because they're easier and more well known--you may even "fail" a few times.
+
+Persist. And eventually your new path will be far more familiar.
+
+Treat yourself like the little brothers you watch over.
+
+## Chapter 15: Moving New Beliefs from your Head to your Heart
 
 # What ACTIONS/HABITS will I partake after reading this book?

@@ -383,7 +383,7 @@ Often, core beliefs are hard to define because they're not clear statements in o
     - Identify a situation that causes you to have an unhealthy negative emotion, then ask yourself: "what does this say about me?
     - Keep going down the arrow with each belief, constantly asking yourself the meaning, until you reach a point where you can no longer think beyond the meaning--that's the core belief
 
-![](/static/cbt9.jpeg) ![](/static/cbt10.jpeg)
+![](/cbt9.jpeg) ![](/cbt10.jpeg)
 
 2. Nightmares
     - This technique is the same as arrow, but focuses on **fictional**, but visceral, dreams, instead of real-life events
@@ -412,7 +412,7 @@ Often, core beliefs are hard to define because they're not clear statements in o
         4. What is a more unbiased, **accurate** interpretation of these events?
         5. What alternative behavior may be more productive?
 
-![](/static/cbt12.jpeg)
+![](/cbt12.jpeg)
 
 
 Whichever method you choose, always answer in the context of the big three:
@@ -441,7 +441,7 @@ I personally love the examples the chapter provides. For example:
 
 ### The nature of unhealthy core beliefs
 
-![](/static/cbt11.jpeg)
+![](/cbt11.jpeg)
 
 Unhealthy core beliefs are like living organisms; they feed on negativity, reject positivity, and may even distort positivity (as shown in above image)
 

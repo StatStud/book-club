@@ -227,6 +227,8 @@ It seems so much of our problems can be solved if we simply took the time to be 
 
 ### Summary
 
+Emotions do matter in the sense that we should be able to identify them with clarity. Identifying the specific emotion is the first step in ABC, and a problem clearly written on paper is half solved
+
 ### Chapter Details
 
 Most of this chapter was pretty meta; it introduced ways of looking at our emotions, and how some can be contructive or self-punishing.
@@ -241,15 +243,35 @@ This is because it not only reveals the issue at hand, but the associated emotio
 
 # Chapter 7: Identifying Solutions that Cause You Problems
 
-This chapter starts by detailing the ideal of *problem-maintaining solutions*--these are saftey behaviors that make us feel at ease in the moment, but simply sweep the issue under the rug.
+### Summary
 
-There were two such solutions that I especailly cling to:
+Certain coping skills can act as a crutch against our self-development. These *problem-maintaining solutions* give us short-term relief, at the cost of long-term solutions.
+
+Behaviors like procrastination or going through extreme lengths to hide my human flaws all take away my power to living my full potential.
+
+But the key to taking action, especially when conducting uncomfortable experiments, is to make it ordinary, leave the ego behind, and simply **do it**; trust that with time, and a growth mindset, you will eventually win.
+
+Learning to make taking action ordinary, and leaving your ego behind allows you to take down each of your fears, to one day become truly fearless just like some of your greatest heros; you literally have it inside of you to become just like your heros.
+
+The three realities of fear are:
+1. Your fear event may never actually happen
+2. If it does happen, you'll adapt and learn how to cope
+3. If it does happen, the event may be ephemerally unpleasant, but it is **rarely** terrible or unbearable
+    - this too shall pass
+
+Routines are not superstitious rituals if (1) they have a productive intent (2) we allow for some flexibility (e.g. if I miss a workout in the morning, I may still continue with the rest of my day)
+
+### Chapter Details
+
+This chapter starts by detailing the ideal of *problem-maintaining solutions*--these are safety behaviors that make us feel at ease in the moment, but simply sweep the issue under the rug.
+
+There were two such solutions that I especially cling to:
 1. Concealing aspects of myself that cause shame
-    - Especailly in high school, I did a lot to protect my ego by making it seem like I was perfect. Granted, I was focused, but I also lacked so much in other areas of my life.
+    - Especially in high school, I did a lot to protect my ego by making it seem like I was perfect. Granted, I was focused, but I also lacked so much in other areas of my life.
 2. Putting off dealing with problems or tasks until you're in the mood
-    - This is a new one for me in early adulthood. I am surpisingly lazy despite having strong desires to earn more money.
+    - This is a new one for me in early adulthood. I am surprisingly lazy despite having strong desires to earn more money.
     - This is not good, because often undone tasks weigh heavily on my mind--they take away from my peace of mind
-    - again, tying back to the first point, I often avoid asking quesitons to make it appear as though I know what I'm doing
+    - again, tying back to the first point, I often avoid asking questions to make it appear as though I know what I'm doing
 
 The trick to many of these issues is simply stop trying so hard, and be where you are now, knowing that you will get better.
 - don't force it
@@ -259,7 +281,7 @@ The trick to many of these issues is simply stop trying so hard, and be where yo
 
 There's also the idea of certainty. Some things are possible, and maybe even likely to happen, but that does not make them certain, and it's how I respond to when something "reliable" breaks down on me that determines how well I can handle uncertainty.
 
-The book also mentions a few other unusful behaviors, such as supersitious rituals. Though for myself, I often wonder what the difference is between being consistent on a rountine and habit, and following a ritual.
+The book also mentions a few other unusual behaviors, such as superstitious rituals. Though for myself, I often wonder what the difference is between being consistent on a routine and habit, and following a ritual.
 
 According to ChatGPT, 
 
@@ -270,7 +292,7 @@ In other words, routines are not superstitious rituals if (1) they have a produc
 Another important note to make is that on fear. This chapter has a brief section that clearly outlines many of the realities of fears. Three of which that stood out to me were:
 1. Your fear event may never happen
 2. If it does happen, you'll adapt and learn how to cope
-3. The event may be ephemorally unpleasant, but it is **rarely** terrible or unbearable
+3. The event may be ephemerally unpleasant, but it is **rarely** terrible or unbearable
 
 In other words, grow a pair. 
 

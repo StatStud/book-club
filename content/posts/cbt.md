@@ -385,7 +385,23 @@ Most importantly, we **MUST** stop expecting grand changes, and instead be flexi
 
 # Part 3: Putting CBT into Action
 
+The antidote to fear is exposure--make your fear ordinary through habituation. The antidote to depression is action and a healthy routine. 
+
+We think the way we feel. The meanings we assign to events have a great deal to do with how we ultimately feel about those events. Likewise, meaning is attached to the names we call ourselves. Fortunately, we can choose what messages we give ourselves, and therefore choose how we think and feel about ourselves.
+
+It's all about taking personal responsibility for your thoughts, feelings, and actions. You are in the driver's seat, and that's the best news.
+
+Understand that, as a human, you will make mistakes, choosing to label your entire self based on a few mistakes is not an accurate endpoint for self-improvement.
+
+Anger is a loss of control; learn how to deal with people. People will always exist in society, they have a right to exist in your world, and they have a right to act stupid. I have a whole set of principles on dealing with people; refer to that list.
+
 ## Chapter 9: Standing Up to Anxiety and Facing Fear
+
+### Summary
+
+The antidote to fear is exposure--make your fear ordinary through habituation.
+
+### Chapter Details
 
 This chapter focus on confronting fear.
 
@@ -419,6 +435,12 @@ Keep a record of your fears, and systematically make a plan to conquer them all.
 
 ## Chapter 10: Deconstructing and Demolishing Depression
 
+### Summary
+
+The antidote to depression is action. It helps to have a healthy self-care routine (meditation , exercise, healthy food, etc.) to that your depression is not the result of simple fixes.
+
+### Chapter Details
+
 As the title suggests, we cover depression and how to recover from it.
 
 I've personally been depressed before. Super depressed. This was after moving away from home and going all-in on my career, only to become burned-out from work, isolated in a small town, and feeling like I was losing touch with how to act human (mind you, I was working in an area that felt like 90% of scientists lived there). This was made worse when I visited my brother in Philadelphia, and I saw how much bette his life was.
@@ -448,17 +470,67 @@ But honestly, there's really only 1 solution to ending rumination or even depres
 
 ## Chapter 11: Overcoming Obsessions
 
+### Summary
+
 I did not spend too much time reading this chapter, but at a glance, it seems to cover some pretty good topics.
+
+### Chapter Details
+
 
 ## Chapter 12: Overcoming Low Self-esteem by Accepting Yourself
 
-This chapter has a lot of pretty good content, and is worth re-reading.
+### Summary
+
+We think the way we feel. The meanings we assign to events have a great deal to do with how we ultimately feel about those events. Likewise, meaning is attached to the names we call ourselves. Fortunately, we can choose what messages we give ourselves, and therefore choose how we think and feel about ourselves.
+
+It's all about taking personal responsibility for your thoughts, feelings, and actions. You are in the driver's seat, and that's the best news.
+
+Understand that, as a human, you will make mistakes, choosing to label your entire self based on a few mistakes is not an accurate endpoint for self-improvement.
+
+
+### Chapter Details
+
+Self-acceptance is an alternative to boosting self-esteem and tackles the problem by removing self-rating. Labeling yourself makes you feel worse, and can lead to counter unhealthy behaviors.
+
+Here are the principles of self-acceptance
+1. Understand that you, and every single person around you, has worth because you are human
+2. Appreciate that you're too complex to globally measure or rate
+    - We have the capacity to work on correcting less desirable behaviors and maximizing more desirable ones through a growth mindset
+    - Labeling is not helpful because WE WILL make mistakes, but it's realize that one mistake out of a sea of lessons learned does not define us
+3. Acknowledge your ever-changing nature
+    - The only constant in life is change
+    - Consider yourself as a work-in-progress at any given time, a life-long student, and hold a flexible attitude towards yourself
+4. Accepting your fallible nature
+    - I am human, so I will make mistakes, and that's okay because I am anti-fragile
+5. Valuing your uniqueness
+    - No one has the exact same upbringing as I do; I am really my own comparison group (Jordan Peterson)
+6. Using self-acceptance to aid self-improvement
+    - If and when you make a mistake, take it as it is, and learn from it, objectively, without assigning a label to yourself or your experience
+7. Understand that acceptance doesn't mean giving up
+    - Acceptance is the **honest** and **accurate** perspective we have on ourselves
+    - When we are honest with ourselves, we are in a position to accurately improve
+
+
+> **We think the way we feel.**
+
+The meanings we assign to events have a great deal to do with how we ultimately feel about those events. Likewise, meaning is attached to the names we call ourselves. Fortunately, we can choose what messages we give ourselves, and therefore choose how we think and feel about ourselves.
+
+> **we can choose what messages we give ourselves, and therefore choose how we think and feel about ourselves.**
 
 Understand that most people call themselves stupid or idiots over one mistake. In reality, my *one action* may be silly, but it does not make *me* dumb.
 
 > My *one action* may be silly, but it does not make *me* dumb.
 
+It's all about taking personal responsibility for your thoughts, feelings, and actions. You are in the driver's seat, and that's the best news.
+
+
 ## Chapter 13: Cooling Down Your Anger
+
+### Summary
+
+Learn how to deal with people. People will always exist in society, they have a right to exist in your world, and they have a right to act stupid. I have a whole set of principles on dealing with people; refer to that list.
+
+### Chapter Details
 
 This chapter can be summarized by one sentence: 
 

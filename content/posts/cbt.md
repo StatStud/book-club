@@ -29,6 +29,11 @@ cover:
 - removing emotions from the equations, do you have evidence to support your thinking? Imagine your are defending your ideas in court, and only sound evidence is permissable.
 
 # Part 1: Introducing CBT Basics
+
+CBT is as easy as ABC. Our negative behaviors are often the result of unhealthy core beliefs, which are the product of flawed error thinking. To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow. 
+
+Once an unhealthy core belief is identified, along with its error thinking, we are now in a position to cultivate new, healthy, alternative core beliefs by conducting hypothesis testing and running experiments to collect accurate viewpoints about the situation, and subsequently lead to more productive behaviors. 
+
 ## Chapter 1: You Feel the way you Think
 
 ### Summary
@@ -183,7 +188,7 @@ There are many ways to experiment as well:
     - Go out and put your ideas to the test
 2. Surveys
     - Ask around. See what people think. Be like Socrates who would question people out in public
-3. Observavtions
+3. Observations
     - Often being silent can help reveal much of what we overlook on a daily basis
 
 Here are the benefits of running experiments:
@@ -194,9 +199,19 @@ Here are the benefits of running experiments:
 
 ## Chapter 5: Pay Attention! Refocusing and Retraining your Awareness
 
-This chapter talks breifly about two techniques for managing attention: 
+### Summary
+
+Often, it may be our own excessive thinking that's the problem. Task concentration is the ability to consciously re-focus your attention from inward to outward.
+
+The inner world is emphasized to seek answers, but being outside and observing the world around you can help prevent you from overdoing it.
+
+Task concentration is especially useful when interacting with people, and you may start developing anxiety or self-conscious thinking--when this happens, revert your thinking from inward to outward and focus on the other person.
+
+### Chapter Details
+
+This chapter talks briefly about two techniques for managing attention: 
 1. Task concentration
-2. Mindfullness
+2. Mindfulness
 
 I won't go too much into the weeds on these, because the underlying idea is the same: alternate between focusing on yourself, and focusing on the exterior world.
 
@@ -209,6 +224,10 @@ It seems so much of our problems can be solved if we simply took the time to be 
 # Part 2: Charting the Course: Defining Problems and Setting Goals
 
 ## Chapter 6: Exploring emotions
+
+### Summary
+
+### Chapter Details
 
 Most of this chapter was pretty meta; it introduced ways of looking at our emotions, and how some can be contructive or self-punishing.
 

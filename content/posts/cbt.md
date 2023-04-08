@@ -72,7 +72,14 @@ It's as simple, and easy as that.
 
 ## Chapter 2: Spotting Errors in Your Thinking
 
-Here's a list of the common thinking erros.
+### Summary
+
+Fatal flaws of core beliefs come from thinking errors.
+There are 12 common thinking errors--the common theme in all of them is overweighing the negative over the positive.
+
+### Chapter Details
+
+Here's a list of the common thinking errors.
 
 1. Catastrophising
 2. All or nothing Thinking
@@ -91,6 +98,12 @@ Here's a list of the common thinking erros.
 Here's what all of these error thinkings have in common: We give far more weight to the negative than we do to the positive.
 
 ## Chapter 3: Tackling Toxic Thoughts
+
+### Summary
+
+Keeping track of when we get triggered, and our negative consequences/behaviors, is simple way of identifying the unhealthy core belief.
+
+### Chapter Details
 
 ![](/cbt3.jpeg)
 

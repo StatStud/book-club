@@ -46,6 +46,11 @@ The final and most important step is to actually take action, knowing that you m
 - In my journaling, I have added a section to include the CBT template
     - When I write down emotional events, I will have templates conveniently right next to me to track my thinking.
 - Whenever I'm upset, after I have done box breathing, and I think positively about my worthwhile goal, ask myself: "What evidence do I have to support my thinking?"
+- DOCUMENT MY LIFE
+    - Build things to show and display for others to see
+    - Build my name with action, things that I can show
+    - Live your life like it's a movie and you're the hero!!!
+    - Like this blog :), it's one aspect of that which I document
 
 # Part 1: Introducing CBT Basics
 

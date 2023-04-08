@@ -31,6 +31,18 @@ cover:
 # Part 1: Introducing CBT Basics
 ## Chapter 1: You Feel the way you Think
 
+### Summary
+
+CBT is as easy as ABC. 
+
+A is for action; take note of when you become triggered by an event, either in the present, past, or future. 
+
+B is for belief, notice how you choose to label the action/event; what does this meaning say about me? What does it say about other people? What does it say about the world?
+
+C is for consequences, notice how your behavior manifests. Is this behavior desirable? If not, it is likely due to an unhealthy belief (core beliefs drive behaviors).
+
+### Chapter Details
+
 ![](/cbt2.jpeg)
 
 Implementing CBT is as simple as ABC:

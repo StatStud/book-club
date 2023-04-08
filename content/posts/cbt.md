@@ -560,7 +560,43 @@ If you wish to reduce your stress, understand these two things:
 
 # Part 4: Looking Backwards and Moving Forwards
 
+Core beliefs are living organisms that drive our behaviors. 
+
+Generating alternatives for your unhealthy and absolute core beliefs is not about positive thinking or platitudes, rather about generating **less absolute, more accurate, more realistic** opinions about yourself, other people, and the world around you.
+
+This actual process of cultivating a new path is ACTING!
+
+ACTING, ACTING, ACTING!!!
+
+It's time to go to court, and you get to collect as much positive evidence as possible. Get so much evidence, it would be silly for the jury to consider the null hypothesis.
+
+Which situations should you seek?
+
+The situation that freaks you out if you were still operating under your old beliefs. **GO THERE**
+
+You may relapse and fail. That's okay, old paths are easy and familiar today, but with time, you will have a new, better path.
+
+Have hobbies to collect the evidence of your alternative hypothesis.
+
 ## Chapter 14: Taking a Fresh Look at Your Past
+
+### Summary 
+
+This chapter is all about core beliefs.
+
+Core beliefs are the corner stone that underpins our habits. Core beliefs are the perspectives we hold on ourselves, other people, and the world around us.
+
+Core beliefs are like living organisms in our mind. 
+
+Negative core beliefs feed on negative perspective, reject positive alternatives, and even try to distort positive evidence--they are parasites.
+
+Positive core beliefs are like planting oak trees that give life to compounding good qualities--they are a source of power.
+
+Generating alternatives for your unhealthy and absolute core beliefs is not about positive thinking or platitudes, rather about generating **less absolute, more accurate, more realistic** opinions about yourself, other people, and the world around you.
+
+old beliefs are like well trodden paths through an overgrown field. Expect to "fail" and relapse while you cultivate new paths simply because they’re easier and more well known **today**. But, as with all things, time heals and paves the path to better core beliefs. Be nice to yourself on the instance where you relapse.
+
+### Chapter Details
 
 CBT actually considers the past an important aspects of understanding one's problems by specifically investigating past experiences to see how these early events may still be affecting people in their **present** lives.
 
@@ -655,7 +691,7 @@ Unhealthy core beliefs are like living organisms; they feed on negativity, rejec
 
 A problem written down is half solved; knowing the unhealthy core belief puts you in a position to develop healthier alternatives, which is the other half
 
-> generating alternatives for your unhealthy and absolute cor beliefs is not about positive thinking or platitudes, rather about generating **less absolute, more accurate, more realistic** opinions about yourself, other people, and the world around you.
+> generating alternatives for your unhealthy and absolute core beliefs is not about positive thinking or platitudes, rather about generating **less absolute, more accurate, more realistic** opinions about yourself, other people, and the world around you.
 
 ### Final thoughts on developing new core beliefs
 
@@ -671,6 +707,25 @@ Treat yourself like the little brothers you watch over.
 
 ## Chapter 15: Moving New Beliefs from your Head to your Heart
 
+### Summary
+
+This actual process of cultivating a new path is ACTING!
+
+ACTING, ACTING, ACTING!!!
+
+It's going to feel weird and awkward, and that's okay, keep at it!
+
+It's time to go to court, and you get to collect as much positive evidence as possible. Get so much evidence, it would be silly for the jury to consider the null hypothesis.
+
+If you’re really, really serious about making your new beliefs stick, you can seek out situations that put them to the test.
+
+Which situations should you seek?
+
+The situation that freaks you out if you were still operating under your old beliefs. **GO THERE**
+
+
+### Chapter Details
+
 The point of CBT is to integrate your new, healthy methods of thinking with your mind, emotions, and ***actions**.
 
 Usually, when you fix your mind, the rest will follow through.
@@ -685,7 +740,7 @@ It's time to collect the evidence to support your new view, and this can be done
 
 > *Imagine you're about to go into court to present to the jury arguments in defense of your new belief. Develop as many good arguments that support your new belief as you can by collecting evidence through action*
 
-![](/cbt12.jpeg)
+![](/cbt13.jpeg)
 
 You will often have doubts. Write them down, on paper, just like the zig-zag method above, and stress-test your thinking.
 
@@ -697,17 +752,26 @@ The situation that freaks you out if you were still operating under your old bel
 
 ## Chapter 16: Heading for a Healthier and Happier Life
 
+### Summary
+
+Have hobbies that match to the evidence you wish to collect.
+Go out and interact with people and the world!
+
+### Chapter Details
+
 This chapter talks about the importance of having hobbies, which I certainly agree with. 
 
 Personally speaking, since this is my blog, I want to do the following hobbies:
 - Brazilian jiu-jitsu / boxing
 - Salsa Dancing
-- Acting classes
+- Acting classes/Improv
+- Comedy club
 - Golf
 - Spanish speaking classes
 - Yoga
 - cross fit
 - volunteering (nursing home)
+
 
 I want to do the above specifically because they involve working with other people, while increasing my social confidence to be outside.
 
@@ -719,17 +783,31 @@ DO IT!
 
 ## Chapter 17: Overcoming Obstacles to Progress
 
+### Summary
+
 This chapter talks about overcoming obstacles while developing your new path.
 
 Look, you will relapse a few times, and that's okay. Get up, and move forward. It's that simple.
 
+### Chapter Details
+
+
 ## Chapter 18: Psychological Gardening: Maintaining your CBT Gains
+
+### Summary 
 
 Not to much to comment on this chapter. It's again all about maintaining momentum on your goals.
 
+### Chapter Details
+
+
 ## Chapter 19: Working with Professionals
 
+### Summary
+
 I skimmed this section before, but it's not something I'm personally interested in.
+
+### Chapter Details
 
 # Part 5: The Part of Tens
 

@@ -42,8 +42,10 @@ The final and most important step is to actually take action, knowing that you m
 
 # What ACTIONS/HABITS will I partake after reading this book?
 
-- Whenever I get negative thoughts, ask myself, "do I have evidence to support my thinking?
-    - This is after I think positively about my worthwhile goals
+
+- In my journaling, I have added a section to include the CBT template
+    - When I write down emotional events, I will have templates conveniently right next to me to track my thinking.
+- Whenever I'm upset, after I have done box breathing, and I think positively about my worthwhile goal, ask myself: "What evidence do I have to support my thinking?"
 
 # Part 1: Introducing CBT Basics
 

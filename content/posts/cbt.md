@@ -34,9 +34,9 @@ cover:
 ![](/cbt2.jpeg)
 
 Implementing CBT is as simple as ABC:
-- Action: Identify the trigger, event, or stimulus that evoked an emotional response from you
-- Beliefs: How do you choose to label this event? How you label this event will determine your emotion; the label comes from your core beliefs and principles, which are amendable
-- Consequences: The resulting emotions, which manifest into behavioral consequences.
+- **Action**: Identify the trigger, event, or stimulus that evoked an emotional response from you
+- **Beliefs**: How do you choose to label this event? How you label this event will determine your emotion; the label comes from your core beliefs and principles, which are amendable
+- **Consequences**: The resulting emotions, which manifest into behavioral consequences.
 
 Here's a basic example: Let's say you are leading a project, and you were unable to obtained the desired result; this results in you being placed on a different team (action).
 

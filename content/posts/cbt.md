@@ -14,9 +14,21 @@ cover:
 
 ## One Sentence Summary
 
+What evidence do I have to support my thinking?
+
 ## One paragraph Summary
 
-- We *feel* the way they think
+Our negative behaviors are often the result of unhealthy core beliefs, which are the product of flawed error thinking.
+
+To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); write down the issue on paper and ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow.
+
+Once an unhealthy core belief is identified, we are now in a position to cultivate less absolute, more accurate, more realistic opinions about yourself, other people, and the world around you by conducting hypothesis testing and running experiments.
+
+The final and most important step is to actually take action, knowing that you may fail or relapse, but persisting forward because you are developing a new habit.
+
+
+### Other points
+- We *feel* the way we think
 - Ask yourself: 
     - "What evidence do I have to support my thinking?"
     - "What evidence am I collecting to validate my thoughts (is it only the negative side)?

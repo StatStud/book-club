@@ -42,6 +42,9 @@ The final and most important step is to actually take action, knowing that you m
 
 # What ACTIONS/HABITS will I partake after reading this book?
 
+- Whenever I get negative thoughts, ask myself, "do I have evidence to support my thinking?
+    - This is after I think positively about my worthwhile goals
+
 # Part 1: Introducing CBT Basics
 
 CBT is as easy as ABC. Our negative behaviors are often the result of unhealthy core beliefs, which are the product of flawed error thinking. To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow. 

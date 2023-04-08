@@ -487,6 +487,10 @@ It's all about taking personal responsibility for your thoughts, feelings, and a
 
 Understand that, as a human, you will make mistakes, choosing to label your entire self based on a few mistakes is not an accurate endpoint for self-improvement.
 
+I remember when I was living in a different city, and I changed units within my apartment complex, I would sometimes go to the old unit instead of my new one. However, with this mistake, I did not beat myself up over it--I didn't even give it much thought other than "whoops, I made a wrong turn".
+
+Just like that example, I will relapse when changing habits, but that does not make me a loser as a whole person, because I am in the changing phase.
+
 
 ### Chapter Details
 

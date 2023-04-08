@@ -40,6 +40,8 @@ The final and most important step is to actually take action, knowing that you m
     - My *one action* may be silly, but it does not make *me*, as a collection of all my other smart moves, dumb.
 - removing emotions from the equations, do you have evidence to support your thinking? Imagine your are defending your ideas in court, and only sound evidence is permissable.
 
+# What ACTIONS/HABITS will I partake after reading this book?
+
 # Part 1: Introducing CBT Basics
 
 CBT is as easy as ABC. Our negative behaviors are often the result of unhealthy core beliefs, which are the product of flawed error thinking. To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow. 
@@ -914,7 +916,3 @@ We know the 10 things **to do**, so now here are the 10 things to **not** do.
 8. "Reinventing your life", by Jeffrey E. Young
 9. "Status Anxiety", by Alain De Botton
 10. "A woman in your own right", by Anne Dickson
-
-
-
-# What ACTIONS/HABITS will I partake after reading this book?

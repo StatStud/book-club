@@ -223,6 +223,33 @@ It seems so much of our problems can be solved if we simply took the time to be 
 
 # Part 2: Charting the Course: Defining Problems and Setting Goals
 
+Identifying the emotion is the first step in ABC because a problem clearly written on paper is half solved; this is one of the instances where emotions do matter, do have a good idea of the precise emotion. 
+
+*problem-maintaining solutions*, such as procrastination or shyness, give us short-term relief, at the cost of long-term solutions when attempting to confront fear in the face of positive change. The key to taking action during hypothesis experimenting is to make it ordinary, leave the ego behind, and simply **do it**; trust that with time, and a growth mindset, you will eventually win; this is how you become fearless.
+
+The three realities of fear are:
+1. Your fear event may never actually happen
+2. If it does happen, you'll adapt and learn how to cope
+3. If it does happen, the event may be ephemerally unpleasant, but it is **rarely** terrible or unbearable
+    - this too shall pass
+
+
+Aside from discarding unhealthy core beliefs, CBT is also a practical and flexible method for achieving goals and solving problems.
+
+We redefine SMART goals:
+1. **S**: Specific AND **positive** goal
+2. **M**: Measurable
+3. **A**: Alignment with principles
+4. **R**: Reason, why are we pursing this goal?
+5. **T**: Time bound
+
+Cost Benefit Analysis (CBA) for actions and decisions can help us better see the impact of our decision across different levels. 
+
+CBA is simply a pros and cons applied to yourself, other people, and the world; doubled to include short-term and long-term consequences. CBA gives us perspective when making decisions.
+
+**Remember**: Nothing is life is neither good nor bad, it simply is, and it’s net impact (the pros and cons) determine based on where we are in life and what we need
+
+
 ## Chapter 6: Exploring emotions
 
 ### Summary

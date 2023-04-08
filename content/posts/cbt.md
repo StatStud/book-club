@@ -298,6 +298,25 @@ In other words, grow a pair.
 
 ## Chapter 8: Setting your Sights on Goals
 
+### Summary
+
+Aside from discarding unhealthy core beliefs, CBT is also a practical and flexible method for achieving goals and solving problems.
+
+We redefine SMART goals:
+1. **S**: Specific AND **positive** goal
+2. **M**: Measurable
+3. **A**: Alignment with principles
+4. **R**: Reason, why are we pursing this goal?
+5. **T**: Time bound
+
+Cost Benefit Analysis (CBA) for actions and decisions can help us better see the impact of our decision across different levels. 
+
+CBA is simply a pros and cons applied to yourself, other people, and the world; doubled to include short-term and long-term consequences. CBA gives us perspective when making decisions.
+
+**Remember**: Nothing is life is neither good nor bad, it simply is, and it’s net impact (the pros and cons) determine based on where we are in life and what we need
+
+### Chapter Details
+
 The purpose of therapy is is to help you achieve your goals. CBT is a **pragmatic** and **flexible** approach to both dealing with problems and setting goals.
 
 This chapter brings up the SPORT acronym for goal setting. While most of us know SMART goals, let's find define our goal that takes the best from both:

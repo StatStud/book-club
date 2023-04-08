@@ -268,7 +268,7 @@ I will say that one of the more useful details is the framing of the problem sta
 
 This is because it not only reveals the issue at hand, but the associated emotions involved, as well as the corresponding behavior. Really advance stuff, but useful if you really want to get to the root of the issue.
 
-# Chapter 7: Identifying Solutions that Cause You Problems
+## Chapter 7: Identifying Solutions that Cause You Problems
 
 ### Summary
 

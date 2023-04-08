@@ -110,7 +110,7 @@ Keeping track of when we get triggered, and our negative consequences/behaviors,
 We discover a neat framework for fine-tuning our ABC method.
 
 1. Write down the emotion we feel from the action
-   - Get creative! There are multiple degrees of emotions (anger, jelously, shame, envy, guilt, etc)
+   - Get creative! There are multiple degrees of emotions (anger, jealously, shame, envy, guilt, etc)
 2. Write down how you acted
    - Did you avoid something? Become aggressive? Become isolated? What about procrastination?
 3. What exactly is triggering your emotions?
@@ -120,26 +120,43 @@ We discover a neat framework for fine-tuning our ABC method.
    - Be honest. Are you feeling like a loser? Then write that down.
 5. Identify which thinking error is the culprit of your negative thoughts
 
-For more in-depth analsis, there's another form below.
+For more in-depth analysis, there's another form below.
 
 ![](/cbt4.jpeg)
 
-6. Examine your negative thoughts more closley
+6. Examine your negative thoughts more closely
    - Can you prove that my thought is 100% true?
    - What evidence do I have for proving this?
    - What evidence do I have for proving the opposite?
    - Get the evidence, from both sides, and get an accurate perspective
 7. Generate alternatives for each of your unhelpful thoughts
     - holy shit I've already done this before!
-    - I can "shed" these old thouhgts behind with new ones
+    - I can "shed" these old thoughts behind with new ones
 8. Rate the effects of your alternatives on your feelings (from 0 to 100)
     - You won't always notice a great deal of change, but as long as the score is higher than before, then that's a step forward!
 9. Develop a plan to move forward
 10. Set yourself some homework
-    - When you complete several ABC forms, you'll begin noticing recurring themes, thoughts, and beleifs
+    - When you complete several ABC forms, you'll begin noticing recurring themes, thoughts, and beliefs
     - Investigate the root cause, until it no longer repeats
 
 ## Chapter 4: Behaving like a Scientist: Designing and Conducting Behavioral Experiments
+
+### Summary
+
+Hypothesis testing is a key technique in CBT. 
+
+Hypothesis testing works the same way in statistics; we are comparing an initial belief with an alternate belief, and then looking at the data to come to an accurate conclusion.
+
+The first step in hypothesis testing is the most crucial but the easiest to complete: write down your troubled/unhealthy core belief on paper, clearly defined, because a problem written down is half-solved.
+
+Once the null hypothesis is written down, we run experiments to collect accurate data. Experiments can be 
+1. Field test (go out there and do it!)
+2. Survey (Go around asking people what they think, and really go deep, like Socrates--makes you realize that you're not alone!)
+3. Observations (Sit quietly and note what you see around you)
+
+These experiments give us new data and evidence to hopefully reject our null hypothesis in favor of a healthy, alternative core belief.
+
+### Chapter Details
 
 This is certainly one of the more practical and useful chapters because it outlines a simple method of confronting fear: through objective experimentation.
 

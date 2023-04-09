@@ -1,6 +1,6 @@
 baseURL: "https://astonishing-parfait-0b03ea.netlify.app"
 languageCode: en-us
-title: My New Hugo Site
+title: Book Club
 theme: hugo-PaperMod
 
 outputs:

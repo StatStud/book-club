@@ -22,7 +22,7 @@ Our negative behaviors are often the result of unhealthy core beliefs, which are
 
 To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); write down the issue on paper and ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow.
 
-Once an unhealthy core belief is identified, we are now in a position to cultivate less absolute, more accurate, more realistic opinions about yourself, other people, and the world around you by conducting hypothesis testing and running experiments.
+Once an unhealthy core belief is identified, we are now in a position to cultivate less absolute, more accurate, more realistic opinions about yourself, other people, and the world around you by conducting hypothesis testing and running experiments; this is where you generate new data to validate your newfound core belief.
 
 The final and most important step is to actually take action, knowing that you may fail or relapse, but persisting forward because you are developing a new habit.
 

@@ -18,6 +18,8 @@ What evidence do I have to support my thinking?
 
 ## One paragraph Summary
 
+![](/cbt14.png)
+
 Our negative behaviors are often the result of unhealthy core beliefs, which are the product of flawed error thinking.
 
 To identify an unhealthy core belief, start by tracking when you become emotionally triggered by an event (past, present, future; real or fictional); write down the issue on paper and ask yourself what this event says about you, other people, and the world, and notice the negative behaviors that follow.

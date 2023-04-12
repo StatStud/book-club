@@ -105,10 +105,13 @@ It's as simple, and easy as that.
 
 ### Summary
 
+![](/cbt15.png)
+
 Fatal flaws of core beliefs come from thinking errors.
 There are 12 common thinking errors--the common theme in all of them is overweighing the negative over the positive.
 
 ### Chapter Details
+
 
 Here's a list of the common thinking errors.
 
@@ -124,6 +127,8 @@ Here's a list of the common thinking errors.
 10. Low fault tolerance
 11. Personalizing
 12. Fortune Telling
+
+![]()
 
 
 Here's what all of these error thinkings have in common: We give far more weight to the negative than we do to the positive.

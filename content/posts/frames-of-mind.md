@@ -5,7 +5,7 @@ draft: false
 tags: ['books','psychology']
 ShowToc: true
 cover:
-    image: frames-of-mond1.jpeg
+    image: frames-of-mind1.jpeg
     alt: "Frames of Mind"
     caption: ""
 ---
@@ -24,6 +24,12 @@ cover:
 # Part 1: Background
 
 ## The Idea of Multiple Intelligences
+
+### Summary 
+
+### Chapter Details
+
+
 
 ## Intelligence: Earlier Views
 

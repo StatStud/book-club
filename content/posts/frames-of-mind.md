@@ -59,6 +59,14 @@ Gardner provides a four step approach to illustrating his following theory:
 
 ## Intelligence: Earlier Views
 
+### Summary 
+
+### Chapter Details
+
+Franz Joseph Gall was a popular scientist from the early 19th century who was among the first modern scientist to stress that different parts of the brain mediate different functions.
+
+Gall also claimed that mental powers (different parts of the brain possessing unique functions), such as perception, memory, and attention; but rather there exist *different* forms of perception, memory, and attention for **each** of the several intellectual faculties, such as language, music, or vision.
+
 ## Biological Foundations of Intelligence
 
 ## What is an Intelligence?

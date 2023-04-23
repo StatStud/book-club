@@ -67,11 +67,17 @@ Franz Joseph Gall was a popular scientist from the early 19th century who was am
 
 Gall also claimed that mental powers (different parts of the brain possessing unique functions), such as perception, memory, and attention; but rather there exist *different* forms of perception, memory, and attention for **each** of the several intellectual faculties, such as language, music, or vision.
 
-The most influential part of this chapter was when the author introduced professor **David Olson** from Ontario Institute for Studies on Eduction.
+The most influential part of this chapter was when the author introduced professor **David Olson** from Ontario Institute for Studies on Eduction. In this chapter, Olson's research demonstrates that the **medium** through which we present information (e.g. books, radio, television, etc) has a profound influence on a child's performance. His evidence illustrates that individuals reared in a society where literacy is highlighted end up **learning** AND **reasoning** differently from those who employ other kinds of symbol systems.
+
+This alone has lead me to look up Olson in detail, and I came across the video below.
 
 ![](/frames-of-mind2.jpeg)
 
 The link to the above video can be found [here](https://www.youtube.com/watch?v=vvrcV7uE7lg).
+
+Despite Olson's research being primarily in the psychological effects of reading, rather than the sociological implications, Olson describes a lot of the effects of reading on individuals.
+
+I specifically liked how Olson mentioned that people who read are more likely to be the more outspoken types. This personally makes me thing of Jordan Peterson, and how well articulate he is in elaborating on his ideas. Olson also described the socioeconomic implications of reading, and how most poor people simply lack the ability to read, and may often go through great lengths to hide it.
 
 ## Biological Foundations of Intelligence
 

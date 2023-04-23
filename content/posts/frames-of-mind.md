@@ -67,6 +67,12 @@ Franz Joseph Gall was a popular scientist from the early 19th century who was am
 
 Gall also claimed that mental powers (different parts of the brain possessing unique functions), such as perception, memory, and attention; but rather there exist *different* forms of perception, memory, and attention for **each** of the several intellectual faculties, such as language, music, or vision.
 
+The most influential part of this chapter was when the author introduced professor **David Olson** from Ontario Institute for Studies on Eduction.
+
+![](/frames-of-mind1.jpeg)
+
+The link to the above video can be found [here](https://www.youtube.com/watch?v=vvrcV7uE7lg).
+
 ## Biological Foundations of Intelligence
 
 ## What is an Intelligence?

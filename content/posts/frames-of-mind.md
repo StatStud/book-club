@@ -69,7 +69,7 @@ Gall also claimed that mental powers (different parts of the brain possessing un
 
 The most influential part of this chapter was when the author introduced professor **David Olson** from Ontario Institute for Studies on Eduction.
 
-![](/frames-of-mind1.jpeg)
+![](/frames-of-mind2.jpeg)
 
 The link to the above video can be found [here](https://www.youtube.com/watch?v=vvrcV7uE7lg).
 

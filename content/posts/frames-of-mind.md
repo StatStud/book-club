@@ -20,6 +20,9 @@ cover:
 
 # What ACTIONS/HABITS will I partake after reading this book?
 
+# What Questions do I have after reading this book?
+1. If environment plays a vital role in who we become, should I do more exploring and traveling to see what other people are doing?
+2. How do I know if I'm in the wrong environment?
 
 # Part 1: Background
 

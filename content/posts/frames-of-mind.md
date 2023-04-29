@@ -164,6 +164,25 @@ The impoverished environment produced dull mice.
 > animals raised in complex environments have larger nerve cells in some brain areas, as well as more synapses, synaptic connections, and other dendritic connections
 
 
+#### Learning
+
+Eric Kandel of Columbia University had outlined four major principles in regard to learning (from his analysis on Aplysia):
+1.  Elementary aspects of learning can be localized (rather than even distributed) in the activity of the specific nerve cells 
+2. Learning results from an alteration in the synaptic connections between cells, rather than developing *new* synaptic connections
+    - This means that leaning and memory customarily result from *alteration* in the strength of **already existing** connections
+3. **Habituation** is one of the fundamental mechanisms of learning
+    - Prolonged and profound changes in synaptic strength can come about through an alteration in the amount of chemical transmitter released at the terminals of neurones
+    - This means through **habituation** of that which we are practicing, each action potential produces progressively less influx of calcium, and hence less transmitter release than does the preceding action potential
+    - Said in another way: with repeated stimulation, the neuron's response to that stimulation decreased
+    - This phenomenon can be observed in everyday life, such as when we get used to the sound of traffic outside our window or the smell of our own perfume
+4. Cellular Grammar underlies various forms of learning
+    - These simple processes of altering synaptic strengths can be combined to explain how progressively more complex mental processes take place
+
+Environmental factors and learning bring out these latent capabilities by altering the effectiveness of pre-existing pathways, thereby leading ot the expression of new patterns of behavior.
+
+#### Brain Regions
+
+The rest of the chapter goes over brain regions and how the brain is organized. 
 
 ## What is an Intelligence?
 

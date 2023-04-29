@@ -64,6 +64,10 @@ Gardner provides a four step approach to illustrating his following theory:
 
 ### Summary 
 
+This chapter was quite dense with a lot of deep ideas on the historical views on intelligence, along with their pros and cons.
+
+Please re-read
+
 ### Chapter Details
 
 Franz Joseph Gall was a popular scientist from the early 19th century who was among the first modern scientist to stress that different parts of the brain mediate different functions.
@@ -82,7 +86,84 @@ Despite Olson's research being primarily in the psychological effects of reading
 
 I specifically liked how Olson mentioned that people who read are more likely to be the more outspoken types. This personally makes me thing of Jordan Peterson, and how well articulate he is in elaborating on his ideas. Olson also described the socioeconomic implications of reading, and how most poor people simply lack the ability to read, and may often go through great lengths to hide it.
 
+IQ tests have predictive power for success in schooling, but relatively little predictive power outside the school context, especially when more potent factors like social and economic background have been taken into account.
+
+The issue with intelligence tests is that they rarely assess skill in assimilating new information or in solving new problems; a bias towards "crystallized" rather than "fluid" knowledge.
+
+> "An individual can lose his entire frontal lobes (and thus unable to display any initiative or to solve new problems) may continue to exhibit an IQ close to a genius level."
+
+Intelligence tests fail to yield any indication of an individual's "zone of potential" development.  
+
 ## Biological Foundations of Intelligence
+
+### Summary 
+
+The biggest take away I took from this chapter is how our **ENVIRONMENT** greatly influences who we become and what skills or intelligence we manifest.
+
+Go out there and try things outside of your comfort zone, because you have no idea what genes are latent within you.
+
+This influence between genes and environment is evident in the concept of *genetic drift*, whereby organisms of the same species are separated geographically, to eventually develop an entirely new genetic pool
+
+### Chapter Details 
+
+Gardner starts by discussing intelligence from the biological perspective.
+
+Specifically, he addresses two concerns: (1) the flexibility of human development (the extent of the brain's plasticity to learn new skills) (2) what skills are available for humans to develop?
+
+#### Genetics
+Gardner first addresses these two concerns through the lense of genetics. 
+
+It is no surprise that some individuals are genetically "at promise" for flowing certain talent. However, like the analogy of how a person may be "at risk" for genetic health concerns, in no way does that itself certify that they will get the disease (genetics load the gun, but lifestyle pulls the trigger). Likewise, those who are "at promise" for certain traits, say chess, cannot manifest those traits without the right environment, or a chess board.
+
+![](/frames-of-mind3.jpeg)
+
+Populations subjected to genetic drift often exhibit remarkable set of characteristics.
+
+How does genetics apply to our unique skill sets? Our genetic heritage is so variegated that one can postulate all kids of abilities and skills *that have not yet emerged*.
+
+#### Neurobiology 
+
+This section is where Gardner discusses the hot debate between Canalization (i.e. "fixed mindset") and Plasticity (growth mindset).
+
+C.H. Wadddington, the geneticist who coined the tern canalization, refers to it as the *tendency* of any organic system (e.g. nervous system) to follow certain developmental paths rather than others.
+
+Waddington demonstrated how it can be surprisingly difficult to divert such patterns from what appears to be their *prescribed* developmental goals--the organism will tend to find a way to finish in its "normal" status, and if thwarted, it will make its peace at a alter point in the developmental course.
+
+These are often the genetically programmed/hardwired organisms.
+
+*However*, the other fascinating aspect of biological development is adaptability (plasticity). 
+
+We see this across many organisms, including humans; in the event that a young organism is damaged, it may often exhibit great recuperative powers.
+
+Placisity is such an interesting concept to grasp, that gardner outlines five principles of plasticity during early life. These are:
+1. Maximum flexibility is encountered in early life
+    - think how babies are able to learn language so quickly
+    - there is also greater adaptability to severe injury as well, which is harder in older ages
+2. Critical periods of development
+    - For example, having the eyes used to seeing light early out of the womb is vital for cats to develop good eye sight
+3. The degree of flexibility differs across the region of the nervous system
+    - For example, the frontal lobes tend to develop later in childhood, compared to other lobes
+4. The importance of environment
+    - an organism will fail to develop normally unless it undergoes certain experiences
+5. Long-term effects of injury to the nervous system 
+
+Gardner proposes that, given these five principles, any simple verdict on the issue of determination versus flexibility is possible (HENCE: in a world where data is abundant to support any narrative, why not choose the story where you win?)
+
+> Another way to look at Determinism (or the "fixed mindset") is ensuring that most organisms will be able to carry out the functions of the species in the normal way, while flexibility (growth mindset) allows for adapting to changing circumstances.
+
+#### Impact of Environment
+
+Garner also elaborates on the impact of environment by referencing experiments done by Mark Rosenzweig in the early 1960s, where he compared mice in enriched environments (complex, lot of stimulation) versus impoverished environment (dull, only basics minimal necessities for food and water).
+
+The studies showed overall better behaviors form the enriched living mice, and differences in brain structures.
+
+The impoverished environment produced dull mice.
+
+> Numerous studies with rats and other species have confirmed that an enriched environment produces more elaborate behaviors as well as pable changes in brain size.
+
+> animals raised in complex environments have larger nerve cells in some brain areas, as well as more synapses, synaptic connections, and other dendritic connections
+
+
 
 ## What is an Intelligence?
 

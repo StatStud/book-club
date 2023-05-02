@@ -186,6 +186,32 @@ The rest of the chapter goes over brain regions and how the brain is organized.
 
 ## What is an Intelligence?
 
+### Summary 
+
+Gardner outlines eight criteria for determining intelligence:
+1. Potential Isolation by Brain Damage
+2. The existence of Idiots Savants, prodigies, and other exceptional individuals
+3. An identifiable core operation or set of operations
+4. A distinctive developmental history, along with a definable set of expert "end-state" performances
+5. An evolutionary history and evolutionary plausibility
+6. Support from experimental psychological tasks
+7. Support from psychometric findings
+8. susceptibility to encoding in a symbol system
+
+### Chapter Details 
+
+There can never exist an exhaustive list of intelligences, but in this book we focus on intelligences that are socially valued by society and based on execution of an action (know how) rather than the knowledge itself (know that).
+
+Gardner outlines eight criteria for determining intelligence:
+1. Potential Isolation by Brain Damage
+2. The existence of Idiots Savants, prodigies, and other exceptional individuals
+3. An identifiable core operation or set of operations
+4. A distinctive developmental history, along with a definable set of expert "end-state" performances
+5. An evolutionary history and evolutionary plausibility
+6. Support from experimental psychological tasks
+7. Support from psychometric findings
+8. susceptibility to encoding in a symbol system
+
 # Part 2: The Theory
 
 ## Linguistic Intelligence

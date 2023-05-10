@@ -216,6 +216,32 @@ Gardner outlines eight criteria for determining intelligence:
 
 ## Linguistic Intelligence
 
+### Summary
+
+### Chapter Details
+
+The four aspects of linguistic intelligence that are practically useful and valued by society are:
+1. Rhetorical
+    - the ability to use language to *convince* others on a course of action
+    - political leaders and legal experts often develop this skill to the highest degree
+2. Mnemonic Potential
+    - using language to help store and remember information
+    - classic example of people who make "stories" to memorize the digits of pi
+3. Explanation
+    - This is where much of teaching occurs
+    - Language remains the *optimal* means fro conveying the basic concepts in textbooks
+    - Language supplies the metaphors that are crucial for launching and explaining new scientific discovery
+4. Meta Linguistic
+    - the ability of language to explain its own activities and reflect upon itself
+    - Asking "Did you mean X or Y?", as a means of analyzing what we actually mean by what we say
+
+Gardner then goes on to compare plasticity with canalization, and how children are born with "innate knowledge" (ask Noam Chomsky would say it) to decode and speak any natural language. 
+
+From a neurology standpoint, it appears that understanding normal depends upon an intact *left* temporal lobe. Indeed, the two hemispheres of the brain are *not* anatomically identical, and the language areas in the *left* temporal lobes are larger than the homologous areas in the right temporal lobes.
+
+When it comes the spoken language versus written language, the modern American culture places greater emphasis on the written word--securing information from reading, and then expressing oneself properly through the written word.
+
+
 ## Musical Intelligence
 
 ## Logical-Mathematical Intelligence

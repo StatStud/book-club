@@ -5,7 +5,7 @@ draft: false
 tags: []
 ShowToc: true
 cover:
-    image: placeholder.png
+    image: how-to-fail-at-almost-everything-and-still-win-big.png
     alt: ""
     caption: ""
 ---

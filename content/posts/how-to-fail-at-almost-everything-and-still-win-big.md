@@ -13,9 +13,10 @@ cover:
 # Summary 
 
 ## One Sentence Summary
+Allow luck to find you through systems.
 
 ## One paragraph Summary
-
+See Introduction below.
 
 # Introduction
 
@@ -27,7 +28,7 @@ Here's an overview of the book's key lessons from Adams's perspective:
 1. Goals are for losers (use *systems* instead)
 2. People's minds (especially your own) are moist computers that can be *programmed*
 3. Tracking and managing personal energy is the vital
-4. Every skill you acquire, independent of mastery, *double* your odds of success
+4. Every skill you acquire, independent of mastery, *doubles* your odds of success
 5. Happiness is health plus freedom
 6. Luck can be managed through systems 
 7. Conquer shyness through acting, until the act itself becomes so habitual, it becomes part of you
@@ -56,7 +57,7 @@ To minimizing the feeling of absurdity that comes with navigating such a complex
 
 It would be foolish to rely on any one filter, since each filter comes with its own blind spot. Instead, Adams suggests that we seek *at least* two filters when making a judgement call on truth. Having multiple filters confirmed indicates *consistency*; Adams claims that the nearest truth we can get is *consistency*. 
 
-> The nearest we can get to truth is consistency
+> The nearest we can get to truth is **consistency**
 
 For example, if a study tells you that eating chocolate will slim you down, but your personal experience has said otherwise, and your friend's experience has said otherwise as well, that's an *inconsistent* truth because, although it's confirmed in studies, it fails to hold up in the practical truth filter of personal experience and experience of other people.
 
@@ -507,3 +508,15 @@ Optimists make themselves easy target for luck to find them.
 # Chapter 38: Summary
 
 Read this chapter if you want an all-in-one summary of this entire book.
+
+# Quotes/Mantras
+- "The nearest we can get to truth is **consistency**"
+- "You want to be steeped to your eyebrows in failure. It's a good place to be because failure is where success likes to hide *in plain sight*."
+- "If you want success, figure out the price, then pay it"
+- "Don't worry about ending up selfish; successful people started out selfishly, but **success changes you** to be more generous because of your abundance"
+- Study Public Speaking, Psychology, Business writing, Accounting, Design (the basics), Conversation, Overcoming shyness, Second language, Golf, Proper Grammar, Persuasion, Technology (hobby level), and Proper voice technique
+- "The external reality doesn’t change, but your point of view does. In many cases, it’s your point of view that influences your behavior, not the universe. And you **CAN** *control* your point of view even when you *can’t* change the underlying reality."
+- "each skill you acquire doubles your odds of success"
+- Adams is just a guy who combined many mediocre skills into creating something new. **NONE** of his skills are world class by any means.
+- "If you find yourself in a state of continual failure, you might be blaming it on fate or karma, when in *REALITY* the answer is simple math. There's usually a pattern, but it might be subtle. Don't stop looking just because you don't see the pattern in the first seven years."
+- "View humans as moist machines that are simply reacting to inputs with programmed outputs"

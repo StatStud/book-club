@@ -196,7 +196,43 @@ As we can see, social acceptance, or being "well-liked" is a defense against the
 
 ### Anxiety and the Threat to the self
 
+It is erroneous to think that wars and economic depressions cause anxiety; rather our anxiety is often the cause of these events--they are symptoms of the same underlying cause.
+
+May brings up the example of Fascism and Nazi totalitarianism. When a nation is prey to insupportable economic want and is psychologically and spiritually empty, it takes one charismatic and passionate individual with a definite plan to fill in the vacuum; the people end up selling their freedom in exchange for their anxiety. 
+
+The same can happen in the US during heated politics; when a group suffers continuous anxiety, with no agreed-on constructive steps to take, its members sooner or later turn against each other. May uses the example fo McCarthyism to illustrate the heightened anxiety that led to a nation turning against itself.
+
 ### What is Anxiety?
+
+Anxiety is helplessness/powerlessness in the face of an unidentified adversity; not knowing the threat, and therefore not knowing what plan of action to take.
+
+(Side note: This is why **a problem written down is HALF-SOLVED!!!**)
+
+What's more, anxiety is a threat to our existence as a whole being, rather than the existence of a subset of ourselves (e.g. a broken arm may hurt, but it does not threaten a person's existence).
+
+The great bulk of our anxiety comes when some value we hold essential to our existence as selves is threatened.
+
+Tying back to the idea of being "well-liked"--it's the same idea of challenging someone's position in the social hierarchy. There is great anxiety when people believe they're position in society is challenged, because of that lingering threat of psychosis from a weak inner strength--thereby creating this constant sense of anxiety.
+
+(Side note: how does this idea compare with the teaching of Budda on "letting go" of past identifies?)
+
+Anxiety has the same effect as psychosis; it disorients man, wiping out, temporarily, hsi knowledge of what and who he is, and blurring his view of reality around him.
+
+#### The antidote to anxiety
+
+Just as anxiety destroys our self-awareness, so awareness of ourselves can destroy anxiety. In other words, the stronger our consciousness of ourselves, the more we can take a strand against and overcome anxiety.
+
+Anxiety, like a fever, is a sign that an inner struggle is in progress; it is evidence that a psychological or spiritual batter is going on. So long as this conflict is present, there is an open possibility that we can becomes aware of the causes of the conflict, and find a solution on a higher level of health.
+
+Anxiety is simply nature's way of indicating to us that we need to solve a problem.
+
+The more the threat wins, the more then our awareness of ourselves is surrounded; the greater our self-strength (our capacity to persevere our awareness of ourselves and the objective world around us) the less we will be overcome by the threat.
+
+Our task, then, is to strength our consciousness of ourselves, to find centers of strength within ourselves which enable us to stand despite the confusion and bewilderment around us.
+
+
+
+
 
 ## What is the foundational knowledge required for me to learn this?
 

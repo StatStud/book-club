@@ -5,7 +5,7 @@ draft: false
 tags: []
 ShowToc: true
 cover:
-    image: placeholder.png
+    image: the-creative-act-of-being.png
     alt: ""
     caption: ""
 ---

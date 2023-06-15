@@ -18,6 +18,10 @@ cover:
 
 # Part 1: Our Predicament
 
+There are two types of "hollow men": (1) "gyroscope men" who are led by a pseudo "inner strength" that's been cultivated from tradition. These people gain their sense of strength by repressing and compartmentalizing their emotions while internalizing external rules (2) "radar men" who are more passive and apathetic, often "mirroring" the actions of others by bending into conformity.
+
+The feelings of emptiness and loneliness go together because they are both a reflection weak inner strength.
+
 ## Chapter 1: The Loneliness and Anxiety of Modern Man
 
 Something to keep in mind: This book was published in 1953 (after WWII).

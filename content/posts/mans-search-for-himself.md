@@ -40,7 +40,7 @@ So, May begins to wonder: **What are the root problems beneath these symptoms?**
 
 In this section, May dives straight into his answer: The chief problem of the people in the middle decade of the twentieth century is **emptiness**.
 
-This is not an issue of people not know what they *want*, rather it's an issue of people not knowing what they *feel*.
+This is not an issue of people not knowing what they *want*, rather it's an issue of people not knowing what they *feel*.
 
 According to May, the underlying problem behind people's inability to make decisions is that **they have no definite experience of their own desires or wants**.
 
@@ -48,15 +48,15 @@ A classic example that illustrates this issue is romantic relationships. Ray's p
 
 These same people can generally talk fluently about what they **should** want, but it becomes evident that they are describing what others, parents, professors, employers **expect of them rather than what they want for themselves**.
 
-As one patient puts it: "I;m just a collection of mirrors, reflecting what everuone else expects of me".
+As one patient puts it: "I'm just a collection of mirrors, reflecting what everyone else expects of me".
 
-Naturally, we may begin to point the finger at society; Freud made it clear that secretive desires (e.g. sexual desires) needed to be released from repression and somehow integrated properly into reality. However, even in 1950s, opportunities for sexual gratification could be found with relative ease ("The Pill", or oral contraceptive pill, took off in the years after this book, during the 1960s).
+Naturally, we may begin to point the finger at society; Freud made it clear that secretive desires (e.g. sexual desires) needed to be released from repression and somehow integrated properly into reality. 
 
-May argues that the sexual problems people brought during his time were rarely struggles against social prohibitions.
+However, even in 1950s, opportunities for sexual gratification could be found with relative ease ("The Pill", or oral contraceptive pill, took off in the years after this book, during the 1960s). May argues that the sexual problems people brought during his time were rarely struggles against social prohibitions. So, if social prohibitions were not the issue, what does May claim the real issue was? 
 
-So, if social prohibitions were not the issue, what does May claim the real issue was? May claims that these people **suffered from deficiencies from within**; **they lacked potency and the capacity to have strong feelings in responding to the sexual partner**. Sex for so many people is an empty, mechanical, and vacuous experience.
+May claims that these people **suffered from deficiencies from within**; **they lacked potency and the capacity to have strong feelings in responding to the sexual partner**. Sex for so many people is an empty, mechanical, and vacuous experience.
 
-So what is this emptiness that May speaks of? It can generally be regarded as an inability to *know* what one feels or wants. 
+So what is this emptiness that May speaks of? It can generally be regarded as an **inability** to *know* what one feels or wants. 
 
 So what set of conditions seem to bring about this emptiness that's within people? Again, many people may begin pointing externally, and pointing the finger to the uncertainty of times following post WWII. May acknowledges that indeed, the post-war uncertainty has a rol in this, but that alone would be a shallow explanation.
 
@@ -107,7 +107,7 @@ Metaphorically speaking, these "outer-directed" are like "radar men", who consta
 - characterized by passivity and apathy
 - wish to be accepted by their peers, even to the extent of being inconspicuous and absorbed in the group
 
-#### Back to the main topic
+#### What does the empty archetype look like?
 
 What's the best illustration of the empty man?
 - Suburban man
@@ -115,7 +115,7 @@ What's the best illustration of the empty man?
 - takes the same train to work
 - performs the same task in the office
 - lunches at the same place
-- leaves the same tip for the waittress each day
+- leaves the same tip for the waitress each day
 - comes home from the same train each night
 - has 2.3 children
 - cultivates a little garden
@@ -141,6 +141,58 @@ Consequently, it is this powerlessness that leads him to despair and futility. W
 When individual emptiness mixes with societal conformity, we get blind mobs of people with no purpose blindly following the next blind person. This calamity makes society at large vulnerable to fascist dictatorships like Nazi Germany to come in and fill in this empty void the same way people seek romantic relationships to fill in the emptiness.
 
 ### Loneliness
+
+The feelings of emptiness and loneliness go together because they are both a reflection weak inner strength.
+
+#### How do people react when feeling anxious?
+
+For example, when a person does not know with any inner conviction what he wants nor what he feels, as a result of a period of traumatic change, be becomes aware of the fact that the conventional desires and goals he has been taught to follow no longer bring him any security or give him any sense of direction, when, that is, he feels an inner void while he stands amid the outer confusion of upheaved in his society, he senses danger; and his natural **reaction** is to look around for people.
+
+Why does he look outward for other people? Because **he hopes they will give him some sense of direction**, or at least some comfort in the knowledge that he is not alone in his fright. This is really no different than the natural instinct in animals to stick together in hurds, to be protected as one pack.
+
+Emptiness and loneliness are thus **two phases of the same basic experience of anxiety**.
+
+#### What is the impact of social relations of Man's self?
+
+Author Norman Cousins wrote in his book, "Modern Man Is Obsolete", "All man's history is an endeavor to shatter his loneliness"--or as French philosopher Blaise Pascal would say, "All of humanity's problems stem from man's inability to sit quietly in a room alone".
+
+Another reason for man's dependance on others is that **the human being gets his original experience of being a self out of his relatedness to other people**; when he is alone, without other persons, he is afraid he will lose his experience of being a self.
+
+Said differently, man receives his consciousness of himself, **which is the basis of his capacity to orient himself in life**, from these relationships. **Part of the feeling of loneliness is that man needs relations with other people in order to orient himself**.
+
+The fear of being alone derives much of its terror from our anxiety lest **we lose our awareness of ourselves**.
+
+In the same way we may lose the distinction between wakefulness and sleep when sleep-deprived, we may lose the distinction between the subjective self and the objective world around us when we are socially deprived.
+
+The people in our lives orient us. Every human being gets much of his sense of his own reality out of what others say to him and think about him.
+
+BUT! The key difference May notes during this time period is one of *extreme* dependence on others for their feeling of reality--to the point where they would fear losing their own sense of existence without the input from others.
+
+This is not to say that isolation is inherently bad, nor to say that socializing is inherently bad either--both qualities can yield great results when balanced correctly, at the right time, while avoiding extremes.
+
+#### The real threat of loneliness
+
+The threat of extreme isolation is psychosis (Side note: I personally experienced this when I lived out in the middle of no where in solitude. The longer I went, the less "human" I stared acting. I would not recommend.)
+
+When a person is on the brink of psychosis, they often have an urgent need to seek out some contact with other human beings **because it gives them a bridge to reality** (side note: again, my experience confirms this. It seems like the body will naturally gravitate to what it actually needs, cool how that works out).
+
+So really, this root issue that people are avoiding by playing the "well-liked" game is to protect against psychosis. Because when one's customary ways of orienting himself on the social hierarchy are threatened, and one is without other selves around, such a person is thrown back on **inner resources and inner strength**--it is these same resources and strength from within that modern man has neglected to develop.
+
+All of this seems to validate the idea that loneliness is indeed a real, rather than imaginary, to such people lacking inner strength.
+
+#### Escaping loneliness is nothing new
+
+Pascal in the seventeenth century observed the great efforts of people to divert themselves, and he opined that the purpose fo the bulk of these diversions was to enable people to avoid thoughts of themselves.
+
+But what made the 1950s special is that the fear of loneliness is much more extensive, and the defenses against it (seeking to be "well-liked", by whatever means of socializing) are more ridged and compulsive.
+
+Another important aspect is the great emphasis society places on being **socially accepted**.
+
+To be socially accepted is the "mark of prestige"--proof that we are "socially successful" by being forever *sought after* and by never being alone.
+
+If one is well-liked (socially successful) one will rarely be physically alone; to not be liked is to have lost out in the race. The famous phrase of the time that reflects this motto is Willie Loman's "Death of a Salesman", where he uses the phrase, "Be well-liked and you will never be alone".
+
+As we can see, social acceptance, or being "well-liked" is a defense against the underlying threat of psychosis resulting from a weak inner strength.
 
 ### Anxiety and the Threat to the self
 

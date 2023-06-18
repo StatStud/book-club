@@ -14,15 +14,13 @@ cover:
 
 ## One Sentence Summary
 
+The issues of society are a reflection of man's weak and undeveloped inner strength and self of identity.
+
 ## One paragraph Summary
 
+Rollo May notices a period of high anxiety and existentialism among people of the 1950s; while many would point outward toward WWII, economic depression, and social prohibitions as the cause of this psychological distress, May suggests that these are merely outward symptoms of underlying conditions within our society--specifically at the individual level. These symptoms of anxiety and loneliness are a result of deficiencies from within, rather than social prohibitions--leading to a sense of inner emptiness that people attempt to fill with external social expectations. The result is a group of people who live passively, have trouble deciding on important matters such as marriage and vocations, and a general sense of apathy towards life. May suggest that man has lost touch with what he feels and wants, calling us to begin introspectively asking what we want and living a life that aligns with that desire.
+
 # Part 1: Our Predicament
-
-There are two types of "hollow men": (1) "gyroscope men" who are led by a pseudo "inner strength" that's been cultivated from tradition. These people gain their sense of strength by repressing and compartmentalizing their emotions while internalizing external rules (2) "radar men" who are more passive and apathetic, often "mirroring" the actions of others by bending into conformity.
-
-The feelings of emptiness and loneliness go together because they are both a reflection weak inner strength.
-
-Emptiness often arises as a result of feeling powerless over one's situation; powerless to do anything effective about their lives or the world they live in
 
 ## Chapter 1: The Loneliness and Anxiety of Modern Man
 

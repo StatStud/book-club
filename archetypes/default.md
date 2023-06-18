@@ -18,6 +18,8 @@ cover:
 
 ## What is the foundational knowledge required for me to learn this?
 
+# Reading Comprehension questions from ChatGPT
+
 # What ACTIONS/HABITS will I partake after reading this book?
 
 # What Questions do I have after reading this book?

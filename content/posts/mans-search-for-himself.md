@@ -274,8 +274,124 @@ By taking an active role in their own lives, individuals can break free from the
 "
 8. Periods of solitude for introspection and retrospection are merely *starting points* towards man's search for himself (his true identity). The next steps include embracing one's one unique desires and aspirations by **actively** seeking out experiences that align with their inner selves.
 
+## Chapter 2: The Roots of Our Malady
 
-## What is the foundational knowledge required for me to learn this?
+The purpose of this chapter is to ask the question: what basic changes are occurring to make this an age of anxiety and emptiness? To begin discussion, we analyze the historical trends of the past.
+
+### The loss of the center of values in our society
+
+Similar to the ideas presented in the book, "The Fourth Turning" by William Strauss and Neil Howe, the 1950s represent a period of changing social values and goals.
+
+May outlines two values that are in a state of transition:
+- Individual competition
+- Reason
+
+Both of these values have guided much of the development of the western world since the age of the Renaissance.
+
+#### Unlearning Individual Competition
+
+Individual competition is the classic laissez-faire theory in economics that advocates for men to further their own economic self-interest, which in turn results in a macro effect that maximized the economic interest of the entire community.
+
+However, the industrial revolution of the 18th century led to the growth and development of big businesses and monopolies in the later centuries--leading people to question how they can become *individual* competitors in the face of giant conglomerates. This transformed the individual worker from a solitary worker to a professional belonging to a bigger entity such as a big corporation or university system.
+
+In the process, people have had to unlearn the idea of individual competition in exchange for the learning of collective cooperation. 
+
+It's **vital** to note that May is **NOT** suggesting we dismiss individual effort and initiative--rather the unique powers and initiative of each individual must be *rediscovered*. But more on that later.
+
+The mindset of individual competition becomes troublesome during this transition period when a social welfare was not yet developed. This old idea mixed with competition from big companies led to the mindset that a loss on one person is a gain on another person's scramble towards the top of the ladder. Consequently, the psychological problems that resulted from this undeveloped idea included increased anxiety and isolation for each other--since each person was seen as a potential rival or enemy. 
+
+May brings up the work of Arthur Miller's *Death of a Salesman*; where the protagonist of the story attempts to conceal his competitive attitude with a facade of being "well-liked". The protagonist, realizing that what he has been taught no longer works with the changing policies of his company, begins to fail miserably (again, this is the rigidity and inflexibility of the "gyroscope man") until finally he decides to take matters into his own hands by committing suicide. The ending remark from his son was, **"he never knew who he was"**.
+
+Note: Always remember that suicide is a permanent solution to temporary situation--it's always best to weather the storm and persist during these downfalls, as it will teach you more about yourself than any other period in your life.
+
+#### Unlearning Reason
+
+Throughout the early centuries, reason worked well to advance the state of science and education. To many people, the idea of reason also implied "universal reason"; it was man's challenge to discover these universal principles from which man could live a happy life.
+
+It was during the 19th century were we witness a gradual split up of reason from "emotion" and "will". 
+
+Prior to Descartes' work, man help the following perspectives:
+- Reason would give the answer to any problem
+- will power was putting the answers from reason into effect
+- emotions generally got in the way of things, so they were repressed
+
+These attitudes led to the transition of reason into *intellectualistic rationalization*, where we find conflicts between instinct, ego, and superego (and later comes Freud to the rescue!).
+
+When Spinoza in the 17th century used the word reason, he meant an *attitude* toward life in which the mind united the emotions with the ethical goals and other aspects of the whole man--this in in contrast to the splitting of the personality the comes form intellectualistic rationalization.
+
+Intellectualistic rationalization would ask the question, "should I follow reason **or** give away to sensual passions and needs, **or** be faithful to my ethical duty", whereas someone sharing Spinoza's perspective would ask, "How does the unity of my mind with the whole of existence impact my perception of self, my understanding of truth, and my ethical considerations?"
+
+It's not without standing that the emphasis of one person getting ahead of the other greatly blocks the possibilities of loving one's neighbor. 
+
+#### The splitting up of the personality
+
+Questions such as "Why does economic striving need to be *against* one's fellow men?", or "Why does reason need to be *against* emotion?" each bring up good points.
+
+It's important to realize that the characteristic of a period of change is precisely that everyone does ask the wrong questions.
+
+Why? Because the old goals, criteria, and principles are still *habitually* set in our minds--it is this resistance to establish a new habit of thinking that leads people to ask questions which never could lead to the right answer. 
+
+It is this inability to completely change oneself that leads people to inadequate solutions in search of the truth:
+- "reason" operates while goes to class
+- "emotion" operates when one visits a lover
+- "will power" operates when studying for an exam
+
+Yet it is this compartmentalization of values and goals that quickly leads to undermining the unity of the personality (the self) into "pieces" within as well as without--leading many without direction as to which way to go (hence the anxiety).
+
+Freud was among the few men who recognized this splitting of the personality and encouraged men to seek unity for our lives.
+
+The typical archetype of the person with split personalities is as follows:
+- A husband who goes off to business
+- He keeps his work and his family in different compartments
+- He treats his wife like a doll
+- Note: this is a reference to Ibsen's *A Doll House* play
+
+Personal Question: I wonder how this relates to Alan Watts' claim "view everything you do as play, and do not make a distinction between work and play" as well as Jeff Bezos' ideal of a "work-life integration" rather than "work-life balance".
+
+What many people don't understand is that people like Freud, Ibsen, and Cézanne were not profits of a new generation, rather the last great men of a previous generation who coasted on the goals of their time. These men lived and experienced a time before the emptiness.
+
+#### Solutions from Friedrich Nietzsche's Prophecy
+
+Soren Kierkegaard, Friedrich Nietzsche, and Franz Kafka are among the people who foresaw the destruction of values and the emptiness that would follow in the 20th century. Each of these men saw that we cannot ride on the goals of the past.
+
+Technology advances so quickly, that Nietzsche was the first to point out that man's great advancements without a parallel advance in ethics and self-understanding would lead to Nihilism.
+
+What Nietzsche is emphasizing is the loss of values from society; in the absence of newfound values to deal with the changing times, society falls into the same tyranny and waves of massacres that we witness from WWII.
+
+So what's the solution? A **revaluation** and **transevaluation** of *all* values as an act of ultimate self-examination for mankind.
+
+Stated simply: we ought to think deeply and reevaluate what we value, and that starts at the individual level.
+
+Values and goals which provided a unifying center for previous centuries in the modern period no longer are cogent. We have not yet found the *new center* which will enable us to *choose our goals* contructively, and thus to overcome the painful bewilderment and anxiety of not knowing which way to move.
+
+Having a framework of values and principles enables us to choose the right goals and ambitions to pursue.
+
+### The Loss of the sense of self
+
+The loss of the self is a result of the over-reliance on the herd.
+
+In the face of totalitarian movements and uncontrolled economic depressions, we tend to feel smaller as persons. This leads to people forming the habitual mental story that they are insignificant and powerless, and rightly so, because pragmatically, how can anyone go up against the economic and political movements of the mid 20th century? 
+
+The authoritarianism of the 20th century was largely accepted **NOT** because many people explicitly believed in it, rather because they feel themselves *individually powerless*, anxious, and *empty*. 
+
+It is precisely this loss of self, this loss in the belief in the worth of a person, that **causes** these mass social and political movements. The loss of self and the rise of collectivist movement are both the result of the *same underlying, historical* changes in our society.
+
+So the effort is to be fought on both flanks: (1) opposing the dehumanizing of the self through the group (2) recover our experiences and belief in the worth and dignity of the person.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# What is the foundational knowledge required for me to learn this?
 
 # What ACTIONS/HABITS will I partake after reading this book?
 

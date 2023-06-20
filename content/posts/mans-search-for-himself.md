@@ -2,7 +2,7 @@
 title: "Man's Search for Himself"
 date: 2023-06-12T19:41:45-04:00
 draft: false
-tags: []
+tags: ['psychology']
 ShowToc: true
 cover:
     image: mans-search-for-himself.png

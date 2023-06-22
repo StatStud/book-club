@@ -14,18 +14,19 @@ cover:
 
 # Part 1: Our Predicament
 
-## Summary
+## Chapter 1: The Loneliness and Anxiety of Modern Man
 
-### One Sentence Summary
+### Summary
+
+#### One Sentence Summary
 
 The issues of society are a reflection of man's weak and undeveloped inner strength and self of identity.
 
-### One paragraph Summary
+#### One paragraph Summary
 
 Rollo May notices a period of high anxiety and existentialism among people of the 1950s; while many would point outward toward WWII, economic depression, and social prohibitions as the cause of this psychological distress, May suggests that these are merely outward symptoms of underlying conditions within our society--specifically at the individual level. These symptoms of anxiety and loneliness are a result of deficiencies from within, rather than social prohibitions--leading to a sense of inner emptiness that people attempt to fill with external social expectations. The result is a group of people who live passively, have trouble deciding on important matters such as marriage and vocations, and a general sense of apathy towards life. May suggest that man has lost touch with what he feels and wants, calling us to begin introspectively asking what we want and living a life that aligns with that desire. Society is beneficial because it grans us social relationships and social roles that help orient us towards our sense of self--problems only arise in extreme conditions when we either derive our strength from conformity or become detached from reality from excessive isolation.
 
-
-## Chapter 1: The Loneliness and Anxiety of Modern Man
+### The Hollow Man
 
 Something to keep in mind: This book was published in 1953 (after WWII).
 
@@ -42,8 +43,6 @@ And here are the symptoms that May notices among his patients:
 - feelings of powerlessness
 
 So, May begins to wonder: **What are the root problems beneath these symptoms?**
-
-### The Hollow Man
 
 In this section, May dives straight into his answer: The chief problem of the people in the middle decade of the twentieth century is **emptiness**.
 
@@ -379,6 +378,105 @@ It is precisely this loss of self, this loss in the belief in the worth of a per
 So the effort is to be fought on both flanks: (1) opposing the dehumanizing of the self through the group (2) recover our experiences and belief in the worth and dignity of the person.
 
 
+#### Archetypes who lack self-awareness
+
+- Albert Camus' "The Stranger" novel, main character who
+    - acts without any clear decision or awareness on his part
+    - as though everything happened *to* him
+    - Never acts like himself
+    - A man missing both courage and despair
+    - Lacks awareness of himself
+    - A "stranger" to himself
+- Those who tend to be performers in life rather than persons who live and act as themselves
+- Court-jester attitude of power and value being correlated with passivity rather than action
+
+#### The function of Laughter
+
+One’s sense of humor is connected with one’s sense of selfhood. Humor normally should have the function of preserving the sense of self. It is an expression of our uniquely human capacity to experience ourselves as subjects who are not swallowed up in the objective situation.
+
+It is the healthy way of feeling a “distance” between one’s self and the problem, a way of standing off and looking at one’s problem with perspective. One cannot laugh when in an anxiety panic, for then one is swallowed up, one has lost the distinction between himself as the subject and the objective world around him.
+
+So long as one can laugh, furthermore, he is not completely under the domination of anxiety or fear–hence the accepted belief in folklore that to be able to laugh in times of danger is a sign of courage.
+
+The humor occurs because of a new appreciation of one’s self as a subject acting in an objective world.
+
+Humor can deepen a reader’s feeling of worth and dignity as a person, and remove blinds from his eyes as he confronts the issues facing him.
+
+In cases of borderline psychotics, so long as the person has genuine humor–so long, that is, as he can laugh, or look at himself with the thought, as one person puts it. “What a crazy person I’ve been!”–he is preserving his identity as self.
+
+There are a few categories of laughter and humor to consider.
+
+Generally, having a good self of humor of one's self is positive.
+
+There are two types of negative laughters:
+1. Quantitative laugher
+    - Laughter is then an escape from anxiety and emptiness in ostrich-fashion rather than a way of gaining new and more courageous perspective in facing one's perplexities.
+    - The simple laughing mechanism has the same function as the release of tension from alcohol and sex.
+    - But like sex and drinking when engaged in for escapist reasons, this kind of laughter leaves one as lonely and unrelated to himself afterwards as before.
+2. Vindictive laughter
+    - laugher of triumph that bears no relation to smiling
+    - laughter in anger or rage
+    - Goes along with seeing one's self as triumphant over *other* selves, rather than being an indication of a new step in the achievement of one's own selfhood
+
+Both quantitative and vindictive laughter reflect the humor of people who have to a great extent **lost the sense of the dignity and significance of persons**.
+
+### The loss of Language for Personal Communication
+
+In this section, May is claiming that our ability to communicate our self identity with the world is diminishing in quality. 
+
+May mentions how the loss in this effectiveness of language is a *symptom* of a disrupted historical period; during peak periods of society, language is transformation, creative, and inspiring (Shakespeare, King James, Socrates, the Founding Fathers, etc. ), while at other points language is weak, vague, and uncompelling. 
+
+Likewise, when a culture is in its historical phase of growing toward unity, its language reflects the unity and and power; whereas when a culture is in the process of a fourth turning, dispersal, and disintegration, the language losses its power.
+
+While spoken and written language is a reflection of our changing times, the same can be said about art, music, or any medium through which one attempts to self-express.
+
+Artist generally seek to speak in their paintings from some solid reality in the self experiencing the world. Modern art can be viewed as an honest portrayal of the condition of our time.
+
+But the artists, and the rest of us too, remain spiritually isolated and at sea, and so we cover up our loneliness by chattering with other people about the things we *do* have language for--current affairs, politics, climate disasters, tv shows, the latest sports events. Our deeper emotional experiences are pushed further away, and we tend, thus, to become emptier and lonelier.
+
+Imagine what this implies about our society in a world where deeper sentiments can only be communicated through limited language?
+
+### "Little we see in nature that is ours"
+
+You know it's quite funny; it seems like many of the great thinkers and contributors of society emphasize a call back to nature. Ray Dalio, Laozi--just to name two people. 
+
+Not to mention how one of the chief characteristics of the Renaissance in Europe was an upsurging of enthusiasm for nature in all its forms (like the work of Giotto). It is this strong feeling for nature that is the hallmark strength for the great Renaissance man.
+
+Even here, May speaks much on the relationship between ourselves and nature.
+
+People who have lost the sense of their identity as selves also tend to lose their sense of relatedness to nature--much the same way a person may not feel inspiring by the seemingly little things like a sunset, the ocean breeze, or the chipper of birds in the morning. 
+
+May claims that our relation to nature tends to be destroyed not only by our emptiness, but also by our anxiety--anxiety compels us to withdraw from nature into the isolated realms (like withdrawing from the open field into the perceived safety of a cave).
+
+So, when a person experiences emptiness from within, that becomes the perception or lense through which he experiences the world around him--emptied, dried-up, and dead. 
+
+To relate to nature is to understand its vastness for creative and destructive potential with pure impersonality--the strong seas can flip any boat, the hungry grizzly bear will annihilate any threat to her cubs.
+
+It's also internalizing that the cliff off the mountain peak would break a man--and his extinction as a person would not play a single difference towards the walls of the granite mountain side.
+
+It becomes this profound threat of "nothingness" or "nonbeing" which one experiences when he fully confronts his relation with inorganic being.
+
+The loss in the ability to relate to nature is a reflection of modern man's loss in his own self.
+
+### The Loss of the sense of tragedy
+
+The task that lays before us is quite simple: we must rediscover the sources of strength and integrity within ourselves.
+
+Here is May's big claim for this chapter:
+
+> We  could go farther and point out that **finding the center of strength within ourselves is in the long run the *best contribution* we can make to our fellow men**. This is what our society needs--not new ideas and inventions, important as these are, and not geniuses and supermen, but persons who can *be*, that is, persons who have a center of strength within themselves. 
+
+# Part 2: Rediscovering Selfhood
+
+## Chapter 3: The Experience of Becoming a Person
+
+
+
+
+
+
+
+ 
 
 
 

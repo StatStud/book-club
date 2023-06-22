@@ -275,9 +275,32 @@ By taking an active role in their own lives, individuals can break free from the
 
 ## Chapter 2: The Roots of Our Malady
 
-The purpose of this chapter is to ask the question: what basic changes are occurring to make this an age of anxiety and emptiness? To begin discussion, we analyze the historical trends of the past.
+### Summary
+
+#### One Sentence Summary
+
+The chapter explores the reasons behind the current age of anxiety and emptiness, attributing it to the loss of personal freedom and identity in favor of conforming to societal norms, a shift in values, diminished means of self-expression, and a disconnection from nature, suggesting that the solution lies in reevaluating and rediscovering individual uniqueness and values to cultivate inner strength to benefit society.
+
+#### One Paragraph Summary
+
+The purpose of this chapter is to ask the question: what basic changes are occurring to make this an age of anxiety and emptiness? How can history help explain this issue?
+
+When we speak of loss of the sense of self, we are speaking of people who have scarified their personal freedom and identity for the **conformity** of the herd. 
+
+And why would these people make such a decision? Why would we willingly sacrifice our genuine interests, dreams, ambitions, and desires for a herd mentality that leaves us feeling empty? Here are four main reasons:
+
+1. **The loss in the belief in the worth** of a person as a result of feeling **powerless** in creating their own life and unaware of what they want and feel leads these same people to sacrifice their self identity for perceived herd direction and mentality.
+2. People, understandingly so, become frustrated by the seemingly sudden change in "how to play the game" of life because **the center of values for society have shifted**. Naturally, this leads to this emptiness and question of values--what should we aim for, in this void of values that no longer serve us? 
+3. **A diminished quality in the means of communicating our selves** that enhance our experience of spiritual isolation and loneliness, in our inability to both feel the significance of our language as well as express it for others to understand.
+4. **Our loss in the ability to relate to nature** is a reflection of modern man’s loss in his own self.
+
+The solution is to reevaluation and rediscover. Rediscovering the unique powers and initiative of each individual. Revaluation and transevaluation of all values as an act of ultimate self-examination for mankind by thinking deeply to ask ourselves what we individually truly value. Molding a wholistic personality that unifies the qualities that make us us. It is this quality, May argues, that will result in the greatest good to society over the long run--that is, a single person with a well developed inner strength.
+
+
 
 ### The loss of the center of values in our society
+
+The purpose of this chapter is to ask the question: what basic changes are occurring to make this an age of anxiety and emptiness? To begin discussion, we analyze the historical trends of the past.
 
 Similar to the ideas presented in the book, "The Fourth Turning" by William Strauss and Neil Howe, the 1950s represent a period of changing social values and goals.
 
@@ -318,7 +341,9 @@ These attitudes led to the transition of reason into *intellectualistic rational
 
 When Spinoza in the 17th century used the word reason, he meant an *attitude* toward life in which the mind united the emotions with the ethical goals and other aspects of the whole man--this in in contrast to the splitting of the personality the comes form intellectualistic rationalization.
 
-Intellectualistic rationalization would ask the question, "should I follow reason **or** give away to sensual passions and needs, **or** be faithful to my ethical duty", whereas someone sharing Spinoza's perspective would ask, "How does the unity of my mind with the whole of existence impact my perception of self, my understanding of truth, and my ethical considerations?"
+Intellectualistic rationalization would ask the question, "should I follow reason **or** give away to sensual passions and needs, **or** be faithful to my ethical duty", whereas someone sharing Spinoza's perspective would ask, 
+
+> "How does the unity of my mind with the whole of existence impact my perception of self, my understanding of truth, and my ethical considerations?"
 
 It's not without standing that the emphasis of one person getting ahead of the other greatly blocks the possibilities of loving one's neighbor. 
 
@@ -465,6 +490,8 @@ The task that lays before us is quite simple: we must rediscover the sources of 
 Here is May's big claim for this chapter:
 
 > We  could go farther and point out that **finding the center of strength within ourselves is in the long run the *best contribution* we can make to our fellow men**. This is what our society needs--not new ideas and inventions, important as these are, and not geniuses and supermen, but persons who can *be*, that is, persons who have a center of strength within themselves. 
+
+> A **single person** with indigenous inner strength exercises a great calming effect on panic among people around him.
 
 # Part 2: Rediscovering Selfhood
 

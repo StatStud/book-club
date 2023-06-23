@@ -296,8 +296,6 @@ And why would these people make such a decision? Why would we willingly sacrific
 
 The solution is to reevaluation and rediscover. Rediscovering the unique powers and initiative of each individual. Revaluation and transevaluation of all values as an act of ultimate self-examination for mankind by thinking deeply to ask ourselves what we individually truly value. Molding a wholistic personality that unifies the qualities that make us us. It is this quality, May argues, that will result in the greatest good to society over the long run--that is, a single person with a well developed inner strength.
 
-
-
 ### The loss of the center of values in our society
 
 The purpose of this chapter is to ask the question: what basic changes are occurring to make this an age of anxiety and emptiness? To begin discussion, we analyze the historical trends of the past.
@@ -496,6 +494,78 @@ Here is May's big claim for this chapter:
 # Part 2: Rediscovering Selfhood
 
 ## Chapter 3: The Experience of Becoming a Person
+
+### Consciousness of Self--The Unique Mark of Man
+
+By around age two, the human baby becomes conscious of himself; this is the birth and beginning of his own entity.
+
+Consciousness is a powerful responsibility and superpower that comes with a price: neuroticism, anxiety, guilt, doubt, and any negative perspective.
+
+When a boy is born, he may feel terribly powerless in the comparison with greater and strong adults around him.
+
+Dogs for example lack consciousness, which permits them to enjoy the present moment bliss, but at the cost of not being able to distinguish between the self and the "I", nor with the ability to learn from the past and plan for the future.
+
+These are the feats that make man the architect of his reality--he can use his consciousness to create the reality he desires. Man can use his consciousness to influence his own development as a person.
+
+This is what it means to be created in the image of God; to fulfill man's potentialities and using his consciousness to create.
+
+#### The struggle towards selfhood
+
+Most of the data for these conflicts of childhood come from adults who are struggling, in dreams, memories, or in present-day relations, **to overcome what in their past lives** originally blocked them in becoming fully born as persons.
+
+> Almost every adult is, in greater or lesser degree, still **struggling** on the long journey **to achieve selfhood** on the basis on the basis of the patterns which were set in his early experiences in the family.
+
+The self is always born and grows in interpersonal relationships. Conformity is the great destroyer of selfhood. 
+
+What needs to be emphasized is not only the admitted fact that we are to some extent created by each other but also our capacity to experience, and create, ourselves--our relations to others is just as important as our relation and knowledge of ourself.
+
+Our every thought in the process of arguing against the consciousness of self proves this very consciousness in ourselves.
+
+#### Making Sense of Descartes
+
+The consciousness of one's identity as a self certainly is not an intellectual idea. When Descartes claimed, "I think, therefore I am", he meant, "I exist because I am a thinking creature".
+
+What does this mean?
+
+You and I never think of ourselves as an idea. We rather picture ourselves as doing something, and then we experience, in imagination, the **feelings** that we will have when we are in actuality doing that thing--we experience ourselves as a **thinking-intuitive-feeling and acting unity**.
+
+The self is thus not merely the sum of the various "roles" one plays--it is the capacity by which one *knows* he plays these roles; the center from which one sees and is aware of these so-called different "sides" of himself.
+
+#### The Importance of Developing the Self Identity
+
+The experience of one's own identity is the simplest experience in life even though, at the same time, it is the most profound.
+
+Every organism has one and only one central need in life, to fulfill its own potentialities.
+
+What makes man's potentiality more difficult than that of the acorn becoming an oak, or the puppy becoming the dog, is that man must do so in self-consciousness--that is to say that his development is not automatic the same way an oak becomes a tree, but rather must be to some extent chosen and affirmed by himself.
+
+Man does not grow automatically like a tree, but fulfills his potentialities only as he in his own consciousness plans and chooses.
+
+If any organism fails to fulfill its potentialities, it becomes sick. 
+
+The flowing of your blood, your heart action, your whole organism would be weaker. And in the same way if man does not fulfill his potentialities as a person, he becomes to that extent constricted and ill. 
+
+This illness is the basis for neurosis--the person's unused potentialities, blocked by hostile conditions in the environment (past or present) and by his own internalized conflicts, turn inward and cause morbidity.
+
+Or, in the words of William Blake, 
+
+> "Energy is Eternal Delight. He who desires but acts not breeds pestilence."
+
+#### What can we expect when we do develop our selfhood?
+
+To the extent that we do fulfill our potentialities as persons, we experience the profoundest **joy** to which human being is heir.
+
+It's the quiet joy when he can love, create, and plan. This joy is the affect which comes when we use our powers. 
+
+> **Joy**, rather than happiness, **is the goal of life**, for joy is the emotion which accompanies our fulfilling our natures as human beings.
+
+It's the joy that comes as a result of **realizing one's identity as being worthy of dignity**, affirm his being, if need be, against all other beings and the whole inorganic world.
+
+It's the same power shown in the life of Socrates, who was so confident in himself and his values that he could take his being condemned to death not as a defeat but as a greater fulfillment than compromising his beliefs.
+
+And here's the good news: this joy is is not limited to the heroic or outstanding figures, but abundant for all who choose to act, no matter how inconspicuous, which is done as an honest and responsible expression of his own powers.
+
+
 
 
 

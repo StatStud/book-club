@@ -661,7 +661,12 @@ The more self-aware one is, the more alive he is.
 
 To becomes ourselves saves us from two issues that plague humanity:
 1. Passivism: Permitting the deterministic forces in one's experience to take the place of self-awareness
-2. 
+2. Activism: The error in believing that lots of motion implies one is more alive--"being busy doing nothing". Business is just as much of a cover for anxiety as passivity.
+
+So if we are to not be passive, and neither active, then what should we seek? Aliveness.
+
+Aliveness often means the capacity to **not act**, but to instead be **creatively idle**--which may be more difficult for most modern people than to do something.
+(This is actually quite similar to the idea of [listening](https://practicalityandsimplicity.com/posts/listening/) over speaking--often, we view listening as not actively contributing, but that's far from the case).
 
 Freud has demonstrated how the modern man is very much "pushed" by unconscious fears, desires, and tendencies of all sorts; man is much less a master in the household of his own mind than the 19th century man of "will power" fondly believed.
 
@@ -670,6 +675,10 @@ Freud has demonstrated how the modern man is very much "pushed" by unconscious f
 The goal of psychoanalysis was to make the unconscious conscious; to enlarge the scope of awareness; to help the individual become aware of the unconscious tendencies which have tended to push the self around like mutinous sailors who have seized power below the deck of the ship--and to use this awareness to at last regain control of the ship and consciously direct it towards his path to selfhood.
 
 The emphasis in this chapter on the heightened awareness of one's self share much in common with the overall purpose of Freud's thought.
+
+> With such a relation to one's self, work for us modern men will not have to be an escape from ourselves or a way of trying to prove our worth, but **a creative expression of the spontaneous powers of the person who has consciously affirmed his relatedness to his world and his fellow men**
+
+
 
 
 

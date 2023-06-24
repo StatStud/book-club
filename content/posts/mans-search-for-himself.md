@@ -566,6 +566,111 @@ It's the same power shown in the life of Socrates, who was so confident in himse
 And here's the good news: this joy is is not limited to the heroic or outstanding figures, but abundant for all who choose to act, no matter how inconspicuous, which is done as an honest and responsible expression of his own powers.
 
 
+### Self-Contempt, a Substitute for self-worth
+
+#### First objection: What if we become too prideful and narcissistic?
+
+Thinking highly of one's self does not come from greater consciousness of one's self nor greater feelings of self-worth. If anything, it's quite the opposite.
+
+Narcissistic arrogance generally comes as external signs of inner emptiness and self-doubt; a show of pride is one of the most common covers for anxiety. The 1920s, for example, was a display of great pride that revealed itself to be a cover for widespread, suppressed anxiety.
+
+The person with weak inner strength becomes
+- an insecure bully
+- the loud braggart at the party
+- a flexing of the muscles
+- much talk, cockiness, and flamboyancy 
+
+Likewise, the prideful emptiness can be found in the fascist state of Germany during the 1940s. Fascism is a development in people who are empty, anxious, and despairing, and therefore seize on megalomaniac promises.
+
+##### Considering the case of the self-condemner
+
+Most people feel so empty and convinced of their lack of worth anyway that they readily agree that the one who is condemning them must be right. Why would these "loser" stoop so low? Because condemning ourselves is the quickest way to get a substitute sense of worth.
+
+People who have almost, **but not quite**, lost their feeling of worth generally have very strong needs to **condemn themselves**, for that is the most ready way of drowning the bitter ache of feelings of worthlessness and humiliation.
+
+It is as though the person were saying to himself, "I must be important that I am worth condemning", or "Look how nobel I am: I have such high ideals and I am so ashamed of myself that I fall short"
+
+> The self-condemning person is very often trying to show how important he is that God is do concerned with punishing him. Much self-condemnation is thus a cloak for arrogance.
+
+Becoming self-condemning is, from Spinoza's viewpoint, on the *same level* as the overly narcissistic man; what makes you feel so special that God wants to focus his punishment on you? "Who do you think you are?"
+
+To be self-hating and self-condemning is to truly be narssasstic--they are two sides to the same coin.
+
+The idea being that if man can condemn themselves they do not really need to feel the pain of their isolation or emptiness, and the fact that they are not loved then does not cast doubt upon their feeling of worth as a person--because they can always just say, "if it were not for such and such a sin or bad habit, I would be loved".
+
+Thus the self-condemning substitute for self-worth provides the individual with a method of avoiding an open and honest confronting of his problems of isolation and worthlessness, and makes for a pseudo-humility rather than the honest humility of one who seeks to face his situation realistically and constructively.
+
+Self-contempt eventually spills out into contempt for others. **Conversely, self-love is a prerequisite for loving others.**
+
+
+### Consciousness of self is not Introversion
+
+What about the risk of being too inward, or "overthinking"?
+
+Let's start with the German definition of self-consciousness, which is to be "self-confident".
+
+Much like driving a car, the less aware you are of how to drive a car, the more tense and and "overthinking" you become, but the opposite happens when you gain more experience and understanding of the car and the rules of the road. Likewise, consciousness of self actually expands our control of our lives, and with that expanded power comes the capacity to let ourselves go.
+
+The paradox is that the more consciousness of one's self, the more spontaneous and **creative** one can be at the same time.
+
+### The Experiencing of One's Body and Feelings
+
+The path towards the self in a journey that **begins** with **rediscovery**--that is to imply, that with which we were previously intimate, but have forgotten.
+
+This involves rediscovering our emotions and awareness of our bodies. The mature person becomes able to differentiate feelings into as many nuances, strong and passionate experiences, or delicate and sensitive ones, as in the different passages of music in a symphony.
+
+Insofar as our attitudes towards our bodies, many people treat their bodies as mechanical machines with separable components--we have "sexual needs" that are detached from the rest of our "self", and medical pills to treat certain deficiencies of our bodies during illness.
+
+What May proposes is a reunification of the body with the self by rediscovering an **active** awareness of one's body.
+
+It is viewing all actions of the body as expressions and actions on behalf of the self.
+
+When you enjoy a good meal, have passionate sex, or lift heavy weights, you are acting as the whole self. In all of these things, your body is not the main actor, rather **YOU** are, changing our perspective form "by body feels" to "I" feel.
+
+It's using an **active** narrative, "I", rather than a passive one, "my body", "my heath".
+
+Most patients in hospitals suffer as a result of anxious tendencies--this is nature's way of saying we're not living towards our unique potentialities. 
+
+To develope oneself is a selfless act that improves the immunity of the entire community.
+
+The next stage begins with **knowing** what one **wants**.
+
+The issue with articulating what we *want* is that we confuse it with the conformity (or social programming) of what we *should* want.
+
+> It can almost be stated as a fact that emotions and desires which have been repressed later drive the person compulsively--they "leak" out in due time, and often outside of our direct control.
+
+The above statements is best illustrated between two types of people: (1) the "gyroscope man" who puts captive his emotions in jail--only for those same emotions to become lawbreakers and reap unexpected havoc (2) the well integrated man whose feelings and wants occur in a configuration; the man who *feels* and is *aware* of his impulses, without automatically reacting to such impulses. That is not to say he is repressing such impulses by denying his desires and being dishonest about what he wants, but rather *understanding* that he has such a desire, and he can create a plan to become aligned with that desire.
+
+Every direct and immediate experience of feeling and wanting is spontaneous and unique. Spontaneity, in this sense, means to be able to respond directly to the total picture. 
+
+The same way a good portrait has an integrated background; so too an act of a mature human being is an integral part of the self in relation to the world around it. Spontaneity, this, is very different from effervescence or egocentricity, or letting out one's feelings regardless of the environment. Spontaneity, rather, is the acting "I" responding to a *particular environment* at a given moment.
+
+Personal Question: does this mean spontaneity is a function of social-awareness?
+
+To recap, the first step involves a rediscovery of our emotions, desires, feelings, and interests. The second step involves knowing what we want, given our inner interest.
+
+The third step, now, is to recover our relation with the subconscious aspects of ourselves.
+
+What does this mean? Simply that we must both find that which we have repressed, and then welcome it back to full integration into ourselves.
+
+How do we find things we have suppressed? Dreams are often a good start to your search.
+
+#### Losing thoughts
+
+The more self-aware one is, the more alive he is.
+
+To becomes ourselves saves us from two issues that plague humanity:
+1. Passivism: Permitting the deterministic forces in one's experience to take the place of self-awareness
+2. 
+
+Freud has demonstrated how the modern man is very much "pushed" by unconscious fears, desires, and tendencies of all sorts; man is much less a master in the household of his own mind than the 19th century man of "will power" fondly believed.
+
+> The overall purpose of Freud's exploration of the unconscious forces was to help people bring these forces into consciousness.
+
+The goal of psychoanalysis was to make the unconscious conscious; to enlarge the scope of awareness; to help the individual become aware of the unconscious tendencies which have tended to push the self around like mutinous sailors who have seized power below the deck of the ship--and to use this awareness to at last regain control of the ship and consciously direct it towards his path to selfhood.
+
+The emphasis in this chapter on the heightened awareness of one's self share much in common with the overall purpose of Freud's thought.
+
 
 
 

@@ -495,6 +495,18 @@ Here is May's big claim for this chapter:
 
 ## Chapter 3: The Experience of Becoming a Person
 
+### Summary
+
+#### One sentence summary
+
+Self-love enables the ability to love others, and one's liveliness increases with a heightened self-awareness, leading to becoming an integrated person through rediscovering and acknowledging emotions, desires, feelings, interests, and dreams.
+
+#### One Paragraph Summary
+
+Self-love is a prerequisite for loving others. The more consciousness of one’s self, the more spontaneous and creative one can be at the same time--we call this quality man's liveliness (aliveness).
+
+To recap, the first step towards becoming an integrated person involves a rediscovery of our emotions, desires, feelings, and interests--this comes from the ability to detect their awareness. The second step involves knowing what we want, given our inner interest--that is to say, we are we make sense of these impulses that have been suppressed. Finally, the third step, is to recover our relation with the subconscious aspects of ourselves--starting from our dreams.
+
 ### Consciousness of Self--The Unique Mark of Man
 
 By around age two, the human baby becomes conscious of himself; this is the birth and beginning of his own entity.

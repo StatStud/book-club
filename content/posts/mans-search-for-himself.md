@@ -678,8 +678,7 @@ The emphasis in this chapter on the heightened awareness of one's self share muc
 
 > With such a relation to one's self, work for us modern men will not have to be an escape from ourselves or a way of trying to prove our worth, but **a creative expression of the spontaneous powers of the person who has consciously affirmed his relatedness to his world and his fellow men**
 
-
-
+## Chapter 4: The struggle to Be
 
 
 

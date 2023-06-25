@@ -692,13 +692,24 @@ The emphasis in this chapter on the heightened awareness of one's self share muc
 
 ## Chapter 4: The struggle to Be
 
+### Cutting the Psychological Umbilical Cord
+
+By no means is the path to self easy. 
+
+> The path to self is not only about learning to feel, experience, and desire, but to **fight against what prevents us from feeling and wanting**. It's for this reason why achieving consciousness of self requires struggle and conflict. We fight against the chains and ties which bind us to the expectations of society.
+
+Thus every person's life could be portrayed by a graph of differentiation based on the following criteria:
+1. How far he freed himself from automatic dependencies
+2. become an individual
+3. able to then relate to his fellows on the new level of self-chosen love, responsibility, and creative work?
+
+So what are the psychological struggles involved in this differentiation of the person from the mass? 
+
+It is true that having close ties to family can provide a rope that brings us back down to reality--but this also means that our development is blocked by this same rope; We can go no further than the length of this rope, and the surrendered freedom for growth turns inward and festers in resentment and anger.
+
+This same protection can have consequences on how we develop of independent adults. Real love is expansive and never excludes loving others: it is only being tied to the mother which is exclusive and blocks one's loving one's wife.
 
 
-
-
-
-
- 
 
 
 

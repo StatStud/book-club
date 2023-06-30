@@ -707,8 +707,32 @@ So what are the psychological struggles involved in this differentiation of the 
 
 It is true that having close ties to family can provide a rope that brings us back down to reality--but this also means that our development is blocked by this same rope; We can go no further than the length of this rope, and the surrendered freedom for growth turns inward and festers in resentment and anger.
 
-This same protection can have consequences on how we develop of independent adults. Real love is expansive and never excludes loving others: it is only being tied to the mother which is exclusive and blocks one's loving one's wife.
+This same protection can have consequences on how we develop of independent adults. **Real love is *expansive*** and never excludes loving others: it is only being tied to the mother which is exclusive and blocks one's loving one's wife.
 
+#### Case Study: The Boy without a Strong Father
+
+I made a specific section just for the case study that May introduces, that speaks quite a bit on my situation as well (but not fully, because some of these qualities do not apply to me, but are interesting to observe).
+
+- Gifted man in his 30s
+- Only child
+- Developed a contempt for his "weak" father
+- When he visits home, he is paralyzed with anxiety 
+- Overly protective alpha mom who praised achievement and appearances
+- Mother would brazenly have extramarital affairs 
+- Achievements by child were a way of enhancing mother's own prestige in the community
+
+This phrase caught my attention: "For one way to defend yourself against someone's exploiting your success is to accomplish nothing which the other could take away--'*uneasy lies the head that wears the crown'*"
+
+So what was wrong with the guy?
+1. The guy suffered from a lack of *feeling*, confusion of sexual roles, and a lack of potency
+2. The relatively atypical family pattern (from the typical patriarchal families that Freud had in his mind)
+3. The mother's excessive "coddling"; the young man derived no real sense of security and power from his position on the throne, **for he was there not because of *his own strength* but as a puppet of the mother**
+4. The son has no figure of masculine strength to identify with, so he lacks that normal source of the experience of power for a growing boy.
+    - As a substitute for his lack of power he has only his mother's pampering and domineering attention
+    - Consequently, this created a man who developed frequent dreams of being literally a prince; his **narcissism** was very great, for **it has to compensate for his *actual, inner feeling* that he was almost completely powerless**
+    - similar to the **theme of this book**: a feeling of powerlessness is a hallmark of the hollow man
+
+It is not a surprise then how so much inner conflict prevents such a gifted man from moving ahead in work, love, or any intimacy with persons. 
 
 
 

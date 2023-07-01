@@ -20,7 +20,7 @@ cover:
 
 #### One Sentence Summary
 
-The issues of society are a reflection of man's weak and undeveloped inner strength and self of identity.
+The issues of society are a reflection of man's weak and undeveloped inner strength and lack of self of identity.
 
 #### One paragraph Summary
 
@@ -732,15 +732,141 @@ So what was wrong with the guy?
     - Consequently, this created a man who developed frequent dreams of being literally a prince; his **narcissism** was very great, for **it has to compensate for his *actual, inner feeling* that he was almost completely powerless**
     - similar to the **theme of this book**: a feeling of powerlessness is a hallmark of the hollow man
 
-It is not a surprise then how so much inner conflict prevents such a gifted man from moving ahead in work, love, or any intimacy with persons. 
+It is not a surprise then how so much inner conflict prevents such a gifted man from moving ahead in work, love, or any intimacy with persons.
+
+So what are the solutions?
+1. Temporarily, the child can withdraw, seeking to protect himself from exploitation by making himself as little as possible to avoid the "slings and arrows" of outrageous fortune
+    - This is kinda what I did
+2. Gradually, he can try to "take arms against a sea of troubles" and **struggle actively** to achieve his dream of freedom as a person in his own right
+    - This is currently what I'm doing
+    - This is the approach we explain in the following section
+
+### The Struggle against the Mother (or, more precisely, restrictive entities)
+
+*Orestes* is one of the well known dramas that depict this struggle for freedom. 
+
+Analyzing historical literature like *Oedipus* or the *Book of Job* the profoundest truths of **human experience** can be seen clearly in the classical forms which have endured age after age.
+
+The story of Orestes goes as such (paragraphing of course).
+- A king father goes to battle against Troy
+- Mother has an extramarital affair
+- When father returns, mother kills the father, and exiles the infant son away from the palace
+- When the son (Orestes) comes of age, he returns to his birthright kingdom to kill his mother
+- The mother tries every trick to preclude Orestes from killing her
+- Eventually, the mother seduces Orestes with false protestations of love
+    - This does the trick, and Orestes becomes "passive" and "blunted"
+    - **THIS** is the issue that every psychotherapist faces. Many young men act out the loss of potency in their struggle with a dominating mother
+- upon killing his mother, Orestes undergoes a mental breakdown he called the "Furies". This is a Greek mythological representation of self-reproach and a bad conscious--the kind of gnawing guilt which will not let a person sleep
+- Orestes is then tried in court, with a major theme for precedent law: **to decide whether a person is to be judged guilty for killing a dominating and exploitative parent**.
+- the court vote ends in a tie, from which Athena, the goddess of wisdom, makes the final decision
+- The final court verdict: **if mankind is to advance, persons must be free from the chains to such hating parents, even though it involves killing the parent**
+- Orestes is then forgiven
+
+The overall theme of the story is struggle: a son's struggle for his own existence as a person. The classic struggle, by shakespeare's words, of "to be or to not be" a psychological and spiritual being. A struggle against dominating and authoritative tendencies that preclude the potentialities of the child.
+
+#### What does "Killing" of the parent mean?
+
+In one sentence: it is the metaphorical struggle against authoritative powers that would otherwise preclude one's growth and freedom.
+
+To be clear, we don't mean the literal sense of "killing" your parents. Rather, we must kill-off the infantile ties of dependency which binds the person to the parents, and thereby keeps him from loving outwardly and creating independently. 
+
+This authoritative figure, from my understanding, does not limit itself to actual parents, rather any entity that locks you down.
+
+In the story of Oedipus, the same theme presents itself, but just with an authoritative father figure rather than an overbearing mother figure. The specifics of who's the repressive authoritive figure changes with cultural and historical factors. 
+
+In the story of Orestes, the son is chained to the mother in respect that he learns to get his rewards only by pleasing her; as though the son's potency is accessible to him only for the purpose of living up to the high expectations of his mother. It's important to note that
+
+> Potency is not power at all when it is available only at someone else's command.
+
+If Orestes lacks potency, then he lacks power; power that he could have used for the development of himself as a person or in loving other people until he becomes free from his ties to her.
+
+In Avatar the Last Airbender, it's Zuko's struggle against his fire lord father.
+
+By that same token, these "authoritative entities" are not "bad" in the sense of their own existence. Cultures, established organizations, universities, family structures, etc. **all exist as a necessary response to a prior generation**.
+
+The demanding mother may have suffered great disappointment; no mother really endeavors to be exploited and demanding **unless there is a good reason for it**. **Generally, the reason is that she has been greatly hurt herself.**. The only way to protect herself, in her eyes, is to dominate others by having everything under control.
+
+It's a tricky balance. Because
+- **On one end**, you don't want to become a rigid "gyroscope man" who fallows the lead of this generation without questions and understanding why the principles are in place--otherwise they suffer in adapting to the inevitable changes in society values
+- **On the other end**, you also don't want to be an irrational and uncontrolled seeker of chaos who chooses to demolish all structures of seemingly authoritative figures because then we lose the practical benefit that make society go around.
 
 
+#### Understanding the duality between womb nurturing and mature freedom
 
+May brings up an interesting point between the mother and child which makes the child's becoming free from the mother so crucial and difficult.
 
+Back to the Orestes story, the final decision was made by a goddess (female) who "never knew the mother's womb that bore me" (meaning, Athena was the birth child of Zeus, and was never nurtured or brought into this world the same way a typical human is).
 
+From a wisdom perspective, Athena knew that the mother relationship will always tend to be *conserving* rather than *revolutionary*--an orientation towards the past (tradition) rather than the future (new age of change).
 
+> By this, Athena recognized that the temptation to be "sheltered", to regress, to be "passive" and "blunted", are **symbolized** by the natural tendency to go back to the womb, and that maturity and freedom as an individual are the **opposite tendencies**.
 
+This could allude to the wisdom aspect of Athena never knowing the womb.
 
+#### Orestes: How did a young man achieve freedom to live as a person?
+
+Upon killing his mother, and being offered the title of king by his sister, Orestes realizes that he has *outgrown* his home city. When his sister insist that his proclivity to leave is due to his lack of a committed marriage, Orestes replies, "it is [mother] in you"--indicating that the same nature of conserving from his mother exists in his sister.
+
+Orestes' final decision comes as a personal commitment to himself to "not waste inward". In overcoming his mother's chains, he has come to establish his self of self, and has then resolved to maintaining this identity at the expense of his familiarity with his home city.
+
+If he should accede to his sister's pleading and remain in the city, Orestes would be like a "walking stone"--he would have forfeited his unique nature as a human being and would have become inorganic.
+
+> "I have fallen in love outward"--the final phrase of Orestes as he leaves the city, representing the goal of man's psychological integration
+
+What does Orestes mean by loving outward? The issue Orestes overcame was that of psychological incest--of being turned inward on the family and consequently unable to "love outwardly".
+
+Even Jesus preached the idea that spiritual development is *away* from incest and *toward* the capacity to love the neighbor and stranger.
+
+When we speak of the negatives of psychological incest, it functions much the same way as biological incest. Incest does not physically harm the baby: it merely doubles the same heredity in the child, and robs it of the possibilities it would have if the parent had married outside the family.
+
+The prohibition against incest makes for greater differentiation in human development, and requires that integration be found not through sameness, but on a higher level.
+
+> The continuum of differentiation which is the life pilgrimage of the human being requires developing away from incest and toward the capacity to "love outwardly".
+
+### The Struggle against One's Own Dependency
+
+It's important to note that while the Orestes drama takes course over the span of a few weeks, **reality** is much slower. 
+
+> In real life, the struggle towards independent freedom is of long, uphill growth to new levels of integration--growth meaning not automatic process but re-education, finding new insights, making self-conscious decisions, and throughout being willing to face occasional or frequent bitter struggles.
+
+A person in psychotherapy often must work through his patterns for months to realize the underlying issues that prevent him from loving, working, and marrying. Often, these patterns go undetected by the person because of how normal they feel.
+
+The person may have to make the drastic move from abundant and familiar social and emotional support to temporary and unfamiliar isolation. 
+
+#### What keeps a person tied to the parent?
+
+It's a two factor issues that's both external and internal. External being the actual environment, culture, and society expectations from which the child is raised. Internal in that the child internalizes these rules of the environment and battles between conforming with what everyone else is doing or having the creative courage to live life on his terms.
+
+The good news is of course that the person has, within himself, the potency and power to get over these issues. They simply need to be rediscovered and nourished to full growth.
+
+> The struggle to become a person takes place within the person himself.
+
+What does May mean by this? While we may be quick to point out that the external authoritative force is to blame, the reality is that, once the person is aware of his own journey towards selfhood, the crucial **psychological battle** we must wage is that **against** **our own dependent needs** and our **anxiety and guilt feelings** which will arise as we move toward freedom.
+
+To recap, the conflict is between two parts of a person: (1) the selfhood that seeks growth, expansion, and health against the (2) the immature self which longs to remain psychologically tied to the motherly umbilical cord and receiving the pseudo-protection and pampering of the parent **in exchange for independence**.
+
+### Stages in Consciousness of Self
+
+Here are the stages of becoming a person:
+
+1. **Innocence**: before consciousness of the self is born (usually before age 2)
+2. **Rebellion**: person is trying to be free to establish some inner strength in his own right (begins at around age 2)
+3. **Ordinary Consciousness of self**: A person begins, to some extend, to see his error, use his feelings of anxiety and guilt to learn, and make his own decisions with some responsibility
+4. **Creative consciousness of self**: A rare but rewarding level that few people achieve. A person gets sudden insights into a problem from almost nowhere; the answer emerges from what we call subconscious levels in the personality, which is always present in all creative work. 
+    - Alternative names for this level include "self-transcending consciousness", "self-surpassing consciousness", "objective self-consciousness", or even "ecstasy" (meaning "to stand outside of one's self")
+    - This is the level which gives meaning to our actions and experiences on the lesser levels
+    - Even in short spurts of insight, this has the same effect as reaching the peak of a mountain, sketching a mental map, and then going forward with direction and purpose for several weeks of patient plodding up and down "lesser hills" when effort is dull and "inspiration" is conspicuous by its absence
+    - The point at which we see truth, we love others without demand for ourselves, and create in ecstasy that occurs when were are totally observed in what we are doing
+    - As mentioned in the Bible, these insights are the ones we're willing to risk life our life for
+    - Cannot occur on demand--rather spontaneously in moments of receptivity and relaxation rather than action.
+
+# Part 3: The Goals of Integration
+
+## Chapter 5: Freedom and Inner Strength
+
+### The Man who was put in a cage
+
+Let's first start by asking the question: what happens to a man when his freedom was stripped away? We answer this with a thought experiment.
 
 
 

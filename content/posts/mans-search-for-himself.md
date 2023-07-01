@@ -692,6 +692,15 @@ The emphasis in this chapter on the heightened awareness of one's self share muc
 
 ## Chapter 4: The struggle to Be
 
+### One Sentence Summary
+
+The path to self is not only about learning to feel, experience, and desire, but to **fight** against what prevents us from loving outwardly and creating independently while **actively** (rather than passively) **struggling** to achieve our dream of freedom as a person in our own right.
+
+### One Paragraph Summary
+
+The struggle towards selfhood and freedom is primarily an internal conflict where we choose to remove the dependencies that tie us down at the cost of our individual freedom. On one hand, the temptation to be “sheltered”, to regress, to be “passive” and “blunted”, are symbolized by the natural tendency to go back to the womb and "waste inward" our self potentialities; on the other hand, maturity and freedom as an individual are the opposite tendencies, and these lead to the psychological integration of "falling in love outward" or the great empathy of loving thy neighbor as thyself. If mankind is to advance, persons must be free from the chains of dependencies that come at the cost of our individual freedom. This active internal struggle towards selfhood can lead to the discovery of a higher consciousness from which we see truth, we love others without demand for ourselves, and create in ecstasy that occurs when were are totally observed in what we are doing.
+
+
 ### Cutting the Psychological Umbilical Cord
 
 By no means is the path to self easy. 

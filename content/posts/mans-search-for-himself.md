@@ -974,6 +974,10 @@ Side note: I've personally seem this happen before. Seeing my supervisor become 
 
 It is thus crucial to confront our hate openly.
 
+### What Freedom is Not
+
+
+
 
 
 # What is the foundational knowledge required for me to learn this?

@@ -976,9 +976,23 @@ It is thus crucial to confront our hate openly.
 
 ### What Freedom is Not
 
+Freedom is not rebellion, but it is a normal interim move toward freedom.
 
+To rebel against the standard institutions, laws, and societal expectations is to put at jeopardy your own security, sense of freedom, and strength that come from that establishment.
 
+Rebellion is a false sense of freedom that comes from developing an inner strength that relies on knowing what moral convictions the rebel does not live up to.
 
+> The rebel gets his sense of direction and vitality from attacking the existing standards and norms, rather than developing his own standards.
+
+In reality, rebellion acts act as a substitute for the more difficult process of struggling through one's own autonomy, new beliefs, or new foundations from which one can build a meaningful existence
+
+Take for instance the rebels of the Gatsby 1920s era, where people were rebelling against sexual taboos and war or companionate marriage. Today (in the 1950s), these same rebels that were so trendy would have very little supporters, let alone much of an audience. As if this act of rebelling is boring and no longer appealing. Why? **Because when there are no set standards to rebel against, one gets no power from rebelling.**
+
+> In the 1920s Gatsby era, the once adrenalin rushing phenomenon of kissing a girl lost it's luster and potency once it became "routine" and gave no one a special feeling of power.
+
+Side note: is the above phenomenon known as the hedonic treadmill?
+
+> **Freedom is never the opposite of responsibility**
 
 # What is the foundational knowledge required for me to learn this?
 

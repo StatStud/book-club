@@ -994,6 +994,14 @@ Side note: is the above phenomenon known as the hedonic treadmill?
 
 > **Freedom is never the opposite of responsibility**
 
+Likewise, freedom is not planlessness (or, to be without a plan in life).
+
+Given the interdependent value of our current times (an economy that emphasizes cooperation) freedom can be found in the context of economic community and social value of work, not in everyone's setting up his own factory or university. **But this economic interdependence need not destroy freedom if we keep our perspective**. 
+
+> We are more free intellectually and spiritually precisely because we accept our position in economic interdependence with our fellow men.
+
+
+
 # What is the foundational knowledge required for me to learn this?
 
 # What ACTIONS/HABITS will I partake after reading this book?

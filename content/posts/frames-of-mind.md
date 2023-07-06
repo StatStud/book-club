@@ -2,7 +2,7 @@
 title: "Frames of Mind"
 date: 2023-04-21T10:29:47-04:00
 draft: false
-tags: ['books','psychology']
+tags: ['psychology','intelligence']
 ShowToc: true
 cover:
     image: frames-of-mind1.jpeg

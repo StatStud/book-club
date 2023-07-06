@@ -2,7 +2,7 @@
 title: "Cognitive Behavioral Therapy"
 date: 2023-03-27T20:25:02-04:00
 draft: false
-tags: ['books','psychology']
+tags: ['psychology']
 ShowToc: true
 cover:
     image: cbt1.jpeg

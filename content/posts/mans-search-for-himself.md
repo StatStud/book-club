@@ -1000,6 +1000,56 @@ Given the interdependent value of our current times (an economy that emphasizes 
 
 > We are more free intellectually and spiritually precisely because we accept our position in economic interdependence with our fellow men.
 
+To cling to tradition, with the defensive plea that if we lose something that worked well in the past we will have lost all, neither shows the spirit of freedom nor makes for the future growth of freedom.
+
+At this point, May reiterates how much is a book on psychology rather than economics or sociology, but he makes the point that much of man's psychological health is conditioned by the society in which he engages in.
+
+> We simply propose that our social world and economic ideal be that society which gives the *maximum **opportunity*** for each person in it to realize himself, to develop and use his potentialities and to labor as a human being of dignity giving to and receiving from his fellow men.
+
+The good society is thus the one which gives the greatest freedom to its people--freedom defined not negatively and defensively, but positively as the opportunity to realize even greater human values.
+
+It follows then, that collectivism, fascism, and communism is the denial of these values and must be opposed at all costs.
+
+### What Freedom is
+
+> Freedom is man's capacity to a hand in his own development
+
+Freedom is the other side of consciousness of self; without self-awareness, we are pushed along by primal instinct.
+
+Consciousness of self gives us the power to stand outside the rigid chain of stimulus, and respond, to pause, and by this pause to throw some weight on either side, to cast some direction about what the response should be.
+
+
+In the same way anxiety and loneliness go together, so too does freedom and self-consciousness. The less self-aware one is, the less free he is.
+
+Man's emerging self-awareness goes hand in hand with his enlarging **power** to direct his own life. As a person gains more consciousness of self, his range of choice and his freedom proportionally increase. 
+
+Freedom is also cumulative. One choice made with an element of freedom makes greater possible for the next choice. Each exercise of freedom enlarges the circumference of the circle of one's self.
+
+This does not deny the existence of deterministic forces in our lives, but no matter how much one argues for the deterministic viewpoint, he still must grant that there is *a margin in which the alive human being can be aware of what is determining him*.
+
+Freedom is thus shown in *how* we relate to these deterministic realities of life. 
+
+The pattern and style in which you build your house are products of how you, with an element of freedom, use the **reality** of the given materials.
+
+So in the argument of "freedom versus determinism", freedom is not some isolated concept, but exists in the realities of life--such as the laws of physics, the passage of time, the inevitable death of living things, or the constant change of things.
+
+> "When you are thwarted, it is your own attitude that is out of order" --Meister Eckhart
+
+Freedom is involved when we **accept the realities** not by blind necessity but **by choice**.
+
+This also means that the acceptance of limitations need not at all be a reason to give up, but can and should be a **constructive act of freedom**. 
+
+Two groups of people may be sick, or have short height, or have two left feet. One group will always give up and dwell in self-pitty. The other group will recognize the event as something that happens *for them* rather than *to them*, and actively struggle to enlarge their self-knowledge and freedom.
+
+> Consciousness can be seen to many as a curse that comes with anxiety. But this is simply the cost of an overall net positive super power, because it is through our self-consciousness that man can *transcend* the immediate events which determine him.
+
+How man relates to merciless, deterministic realities such as death can be more important for him than the fact of death itself.
+
+> Thus freedom is not just the matter of saying "yes" or "no" to a specific decision: it is the power to mold and create ourselves. Freedom is the capacity, in Nietzsche's words, "to become what we truly are"
+
+### Freedom and structure
+
+
 
 
 # What is the foundational knowledge required for me to learn this?

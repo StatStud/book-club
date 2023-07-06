@@ -2,7 +2,7 @@
 title: "The Almanack of Naval Ravikant"
 date: 2023-05-10T19:27:50-04:00
 draft: false
-tags: []
+tags: ['wealth','happiness','philosophy']
 ShowToc: true
 cover:
     image: naval.png

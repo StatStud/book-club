@@ -2,7 +2,7 @@
 title: "The Creative Act a Way of Being"
 date: 2023-06-14T18:14:45-04:00
 draft: false
-tags: []
+tags: ['philosophy']
 ShowToc: true
 cover:
     image: the-creative-act-of-being.png

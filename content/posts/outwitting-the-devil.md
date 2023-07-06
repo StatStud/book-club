@@ -2,7 +2,7 @@
 title: "Outwitting the Devil"
 date: 2023-06-10T18:04:55-07:00
 draft: false
-tags: []
+tags: ['self-help']
 ShowToc: true
 cover:
     image: outwitting-the-devil.png

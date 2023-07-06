@@ -2,7 +2,7 @@
 title: "How to Fail at Almost Everything and Still Win Big"
 date: 2023-06-04T05:52:30-04:00
 draft: false
-tags: []
+tags: ['self-help','business']
 ShowToc: true
 cover:
     image: how-to-fail-at-almost-everything-and-still-win-big.png

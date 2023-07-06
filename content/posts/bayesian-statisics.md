@@ -2,7 +2,7 @@
 title: "Bayesian Statistics the Fun Way"
 date: 2023-07-02T18:41:23-04:00
 draft: false
-tags: []
+tags: ['statistics']
 ShowToc: true
 cover:
     image: bayesian-stats.png

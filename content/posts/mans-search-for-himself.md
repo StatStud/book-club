@@ -2,7 +2,7 @@
 title: "Man's Search for Himself"
 date: 2023-06-12T19:41:45-04:00
 draft: false
-tags: ['psychology']
+tags: ['psychology','existentialism','jungian-psychology']
 ShowToc: true
 cover:
     image: mans-search-for-himself.png
@@ -384,7 +384,7 @@ So what's the solution? A **revaluation** and **transevaluation** of *all* value
 
 Stated simply: we ought to think deeply and reevaluate what we value, and that starts at the individual level.
 
-Values and goals which provided a unifying center for previous centuries in the modern period no longer are cogent. We have not yet found the *new center* which will enable us to *choose our goals* contructively, and thus to overcome the painful bewilderment and anxiety of not knowing which way to move.
+Values and goals which provided a unifying center for previous centuries in the modern period no longer are cogent. We have not yet found the *new center* which will enable us to *choose our goals* constructively, and thus to overcome the painful bewilderment and anxiety of not knowing which way to move.
 
 Having a framework of values and principles enables us to choose the right goals and ambitions to pursue.
 
@@ -1049,10 +1049,62 @@ How man relates to merciless, deterministic realities such as death can be more 
 
 ### Freedom and structure
 
+> Freedom never occurs in a vacuum; it is never anarchy
+
+We should avoid conformity, but without losing important relationships with other people because not only do people help orient us in reality, but much of our psychological freedom is developed from these continual interactions.
+
+> Freedom does not mean trying to live in isolation. But it does mean that when one is able to confront his isolation, he is able consciously to choose to act, with some responsibility, in the structure of his relations with the world of other persons around him.
+
+The essence of existentialism is its belief in the capacity of the individual to care greatly about his **freedom** and **inner integrity**, enough to die or commit suicide for them if need be.
+
+### "Choosing one's self"
+
+> Freedom does not come automatically from birth, it is achieved through struggle
+
+The basic step in achieving inward freedom is "choosing one's self"--this means to affirm one's responsibility for one's self and one's existence.
+
+It is the OPPOSITE attitude of routine existence; it's instead an attitude of aliveness and decisiveness. 
+
+It means that one recognizes that he exists in his particular spot in the universe and he accepts responsibility for his existence. 
+
+This is what Nietzsche meant by the "will to live". It's avoid living life on instinct mode for self-preservation (passive living), but the will to accept the fate that one is one's self, and to accept responsibility for fulfilling one's own destiny, which in turn implies accepting the fact that one must make his basic choices himself.
+
+Suicide may not (thankfully) be all that common, but what is more common is the psychological suicide, where one does not take his own life, but dies because he has chosen not to live--sometimes consciously, but often subconsciously.
+
+These ways by which people choose not to live reveal just how crucial it is to choose *to* live.
+
+We being to live by first affirming and choosing own own existence. It is doubtful to say we are truly living until we have confronted the terrifying fact **that it is ourselves** who decides suicide by choosing not to live it.
+
+Since one is free to die, he is also free to live.
+
+But to choose NOT to die illustrates that every act thereafter has to some extent been made possible because of that choice. Every act thereafter has a special element of freedom.
+
+We may often toy with the idea of suicide to realize how much more of life there is to live than the goal we are chasing.
+
+> (after explaining an example of a boy who failed to get his fame) And it suddenly dawns on him that, if he came back after the suicide, there would be a lot left in life even if one were not famous. He then chooses to go on living, as it were, without the demand for fame. **It was as though the *part of him* which could not live without fame does commit suicide.** And in killing the demand for fame, he may also realize as a byproduct that the things which yield lasting joy and inner security have very little to do with the external and fickle standards of public opinion anyway. As a result the partial suicide, the boy may now clarify his own goals and arrive at more of a feeling for the joy which comes from fulfilling his own potentialities
+
+The purpose of the above illustration with the boy seeking and failing to attain fame is to make clear that there is a positive aspect to partial suicides, and that the dying of one attitude or desire may result in the birth of something better. This of course depends on the individual's own attitude towards struggle--whether it's something that makes him give up and retreat, or stand and deliver.
+
+A "dying" part of one's self is often followed by a heightened awareness of life, a heightened sense of possibility.
+
+When one consciously chooses to **live**, two things happen:
+1. His **responsibility** for himself takes on a new meaning. 
+    - He accepts responsibility for his own life not as something with which he was forcibly burden with ("I didn't choose to be born"); **but as something he has chosen for himself**
+    - For this reason, himself now exists as a result of a decision he himself has made
+2. Discipline from the outside is changed into self-discipline
+    - He has chosen with greater freedom what he wants to do with his own life, and sees discipline as necessary for the sake of values he wishes to realize.
+
+
+## Chapter 6: The Creative Conscious
+
+
+
 
 
 
 # What is the foundational knowledge required for me to learn this?
+- Existentialism
+- Jungian Psychology
 
 # What ACTIONS/HABITS will I partake after reading this book?
 

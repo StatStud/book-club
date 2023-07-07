@@ -889,6 +889,19 @@ Here are the stages of becoming a person:
 
 ## Chapter 5: Freedom and Inner Strength
 
+### One Sentence Summary
+
+Freedom is the opportunity to realize even greater human values through man’s capacity to direct his own development by adopting greater responsibility in proportion to his greater self-awareness.
+
+### One Paragraph Summary
+
+This chapter speaks on two topics: (1) the consequential emotions we experience after being denied freedom (that is, how to be aware of why we feel hatred and resentment)(2) And then an analysis on what Freedom really is.
+
+To surrender our freedom is to surrender to hatred, anger, and resentment because it simply is not possible for a human being to give up his inner freedom when his outer freedom is denied without something coming in to restore the inner balance. Hating or resenting is often the person’s only way to keep from committing psychological or spiritual suicide; it has the function of preserving some dignity, some feeling of their own identity. The mark of maturity is to first identify what or whom you hate and then constructively use these negative emotions to re-establish one’s genuine freedom.
+
+**Freedom is the opportunity to realize even greater human values through man’s capacity to direct his own development by adopting greater responsibility in proportion to his greater self-awareness.** The basic step in achieving inward freedom is “choosing one’s self”–meaning to affirm one’s responsibility for one’s self and one’s existence. When one consciously chooses to live, two things happen: (1) He accepts responsibility for his own life as something he has chosen for himself (2) he sees discipline as necessary for the sake of values he wishes to realize.
+
+
 ### The Man who was put in a cage
 
 Let's first start by asking the question: what happens to a man when his freedom was stripped away? We answer this with a thought experiment.

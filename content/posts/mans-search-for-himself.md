@@ -1110,8 +1110,43 @@ When one consciously chooses to **live**, two things happen:
 
 ## Chapter 6: The Creative Conscious
 
+### Intro
 
+Similar to what Naval Ravikant speaks about, part of what makes man wise and conscious is his ability to recognize the long-term consequences of his present day actions. This consciousness is what separates man from other animals.
 
+The mark of a mature man is that his living is integrated around self-chosen goals: he knows what he wants, no longer simply as the child wants candy but as the grown person *plans and works* toward a creative love relationship or toward business achievement or what not.
+
+He loves the members of his family not because he has been thrown together with them by accident, but because he finds them loveable and chooses to love them. He works not merely from automatic routine, but because he consciously believes in the value of what he is doing.
+
+Man's anxiety occur mainly because his values are confused and contradictory, and he has no psychic core--or at least an underdeveloped self of self.
+
+An individual's inner strength and integrity will depend on how much he himself believes in the values he lives by.
+
+The focus of this chapter to is inquire how a person can maturely and creatively choose and affirm such values.
+
+It should be pointed out that our values depend very much on the age we live in.
+
+No wonder, then, why in the age of transitions or fourth turnings, skepticism and doubt accompany every thought.
+
+Recall from chapter 2, where we note the signs of a transition period of chaos in society. 
+
+And without a doubt, everyone should agree that in times of social upheaval people suffer from feelings of "rootlessness" and cling to authority and established institutions as a source of security in the storm. But this security can easily be misguided if it falls in the hands of authoritarian regimes.
+
+"Most people are incapable of tolerating change and uncertainty in all sectors of life at once" is such a true statement for many people who may often choose suicide to handel the overwhelming complexity of life.
+
+And naturally, because we are but animal, we seek groups and collectivism as a response to the uncertainty, because we point to other people to give us direction and stability. But this is the trap of collectivist regimes such as communism or fascism.
+
+To fall back on old traditions and the past is no solution either, for one can never apply some "center" from the outside. 
+
+> Difficult as the task may be, we must accept ourselves and our society **where we are**, and find our ethical center through a deeper understanding of ourselves as well as through a **courageous** confronting of our historical situation.
+
+Another response comes from the more intellectually and sensitive group of people, who have turned with new interest to the ethical and religious wisdom of the past, and to the extent that this is not merely a response to anxiety, this is indeed a salutary response. The only drawback to this response is the potential for an intellectual to use it as justification for an authoritarian regime.
+
+> So we see clearly from both group's response that the real issue is to distinguish what is healthy in ethics and religion, and yields a security **which increases personal worth, responsibility, and freedom**.
+
+### Adam and Prometheus
+
+We start by asking how a healthy ethical awareness is born and develops in human beings.
 
 
 

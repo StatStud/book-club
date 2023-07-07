@@ -1148,7 +1148,66 @@ Another response comes from the more intellectually and sensitive group of peopl
 
 We start by asking how a healthy ethical awareness is born and develops in human beings.
 
+Like freedom and other aspects of man's consciousness of self, ethical awareness is gained only at the price of inner conflict and anxiety.
 
+Like the Biblical story of Adam and Eve, ethical insight and self-awareness are born at the same time; the first evidence of their knowing good and evil was in their experiencing of anxiety and guilt upon eating the apple.
+
+God punished Adam with a lifetime of work and the realization that his life is finite.
+
+> *"By the sweat of your brow shall you **earn** your living. Until you return to the ground. For dust you are, and dust you must return."* 
+
+The Garden of Eden represents the state reserved for infants, animals, and angels, in which ethical conflict and responsibility do not exist. Adam and Eve's birth of consciousness indicated that they were no longer suited for the garden.
+
+So if the story of Adam and Eve is a story that illustrates the birth on man's consciousness, then the story of Prometheus is a story that illustrates the birth of man's creativity.
+
+- Adam and Eve: Consciousness: Knowing good from evil
+- Prometheus: Creativity: Bringing of new ways of life to mankind
+
+> Prometheus' perpetual torture represents the inner conflict which comes with creativity; it symbolizes the anxiety and guilt to which the man who dares to bring mankind new forms of life is subject. 
+
+So that begs the question: **What does it mean that the gods fight against man's creativity?**
+
+The Greeks and Hebrews knew that when man tried to leap over his human limitations, when man:
+- leaps over his human limitations through the sin of overreaching himself
+- commits hubris
+- seeks universal power
+- becomes arrogant with perceiving final truth
+
+...then he becomes **dangerous**.
+
+This seems to fall in line with what Socrates says:
+
+> The beginning of wisdom is the admission of one's ignorance, and man can creatively use his powers to transcend his limitations only as he **humbly and honestly** admits these limitations to begin with
+
+**BUT** The acts of rebellion from both Adam's story and Prometheus' story are not done in vanity nor arrogance--they were indeed humble and honest attempts for man's seeking of greater value.
+
+Which brings us back to the main question: **What does it mean that the gods fight against man's creativity?**
+
+Perhaps these stories reveal the age-old conflict between a new life and creativity attempting to overtake the existing entrenched authority? Those who represent the "new" find themselves in deadly conflict with the entrenched powers.
+
+The anxiety of Adam and the torture of Prometheus tell us that psychologically, within the creative person himself, there is fear in moving ahead.
+
+These myths speak on both sides of man: 
+1. A courageous side that goes against the odds  to defend freedom and personal growth
+2. A servile side which passively submits to comfort and security at the price of freedom and personal-growth
+
+We now start seeing, that despite the struggle, hardship, anxiety, and guilt that comes with our consciousness, these are vastly minor prices to pay for the creative act of being.
+
+To be sure, a thriving society should have both sides: the influence which brings new ideas and ethical insights into birth, and the institutions which conserve the values of the past. No society would survive long without both new vitality and old stability.
+
+So, as May writes this book in the 1950s, he's noticing that the balance has tipped far too off center towards conformity. 
+
+But what really is ethical about obedience. 
+
+Obedience only works with dogs, who lack the neurotic tendency to "break out" with an act of rebellion as a result of their repressed and denied freedom.
+
+Side note: this is exactly what happened to me. My self-imposed imprisonment led me to eventually break out and be free as an act of rebellion.
+
+Jesus and Socrates were executed as "threats" to moral and social stability.
+
+> Is there not the conflict between every human being's need to struggle toward enlarged self-awareness, maturity, freedom, and responsibility, and his tendency to remain a child and cling to the protection of parents?
+
+### Religion: Source of Strength or Weakness?
 
 # What is the foundational knowledge required for me to learn this?
 - Existentialism

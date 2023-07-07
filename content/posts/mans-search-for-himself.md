@@ -1209,6 +1209,73 @@ Jesus and Socrates were executed as "threats" to moral and social stability.
 
 ### Religion: Source of Strength or Weakness?
 
+In any discussion on whether religion helps or hinders inner development, the question is more about *what kind* of religion and *how* it's used.
+
+Philosophy may be a flight from reality into a harmonious "system" as a protection from anxiety and disharmonies of day-to-day life.
+
+Or, philosophy may be a courageous endeavour to better understand reality.
+
+Likewise, science may be used as a rigid, dogmatic faith by which one escapes emotional insecurity and doubt, *or* it may be open-minded search for new truth.
+
+So, as with any domain (religion, science, philosophy, etc.), when we approach the question as: does it increase or decrease dependency? **Does it keep the individual infantile or mature?**
+
+#### First question
+
+> Does a given individual's religion serve to break his will, keep him at an infantile level of development, and enable him to avoid the anxiety of freedom and personal responsibility?
+
+> Or does it serve him as a basis of meaning which *affirms* his dignity and worth, which gives him a basis for **courageous acceptance** of his limitations and normal anxiety, but which aids him to *develop* his powers, responsibility and his capacity to love his fellow men?
+
+> The problem of being prey to someone else's power is reinforced by the individual's own infantile desires to be taken care of. These tendencies within one's self is the proclivity of that individual to give one's self over to the dominating person.
+
+This statement hits so hard for me. I cannot rely on a mentor who will show me the way. It's nice to have them, but at the end of the day, it's up to me to fix my inner vacancies and find power from within.
+
+Generally, there are two attitudes towards those who adopt religion:
+1. A "zest" in wanting to do something with themselves and their lives
+    - A function of the person's confidence in meaning and value in life
+    - A constructive contribution of a mature religion with an energizing influence
+2. A divine right to be taken care of
+    - One of the greatest blocks to the development of these persons toward maturity 
+    - Have been taught that happiness and success would follow their "being good" and "well liked"
+    - Being merely obedient like a dog undermines the development of an individual's ethical awareness and inner strength
+    - Over time, this person will begin losing his real powers of ethical, responsible choice, which also means their power to achieve goodness and joy are diminished
+    - has had to give up a *realistic attitude* toward money; he is shy for asking what he wants and believes the "church" (his employer, government, or whatever) will "take care" of him financially
+    - It is this buried resentment which gives the dynamic to the demand to be taken care of, as though he were silently saying, "I was promised I would be taken care of if I was obedient: look how obedient I have been, so why am I not taken care of?"
+    - eventually developing other sentiments of having a right to exercise power over others ("Am I not my brother's keeper?")
+    - Gets his feelings of worth, prestige, and power through identifying with someone who is above in the hierarchy
+    - As though everyone were trying to live vicariously through someone else, until no one knows where he himself is
+    - "If you take responsibility for me, I will for you"
+    
+**NOTE:** NONE of these tendencies are restricted to religion; they can apply to any big institution. This is called psychological **transference**.
+
+> The neurotic uses of religion have one thing in common: **they are devices by which the individual avoids having to face his loneliness and anxiety**.
+
+> Maturity and eventual overcoming of loneliness are possible only as one **courageously** accepts his aloneness to begin with.
+
+Freud was able to work with such **courage** and **unswerving purpose** for the last 40 years of his life; he won the battle of being able to grow and work alone in that first solitary 10 years.
+
+> This is the battle the creative ethical figures like Jesus win in the wilderness; that the real meaning of the temptations with which Jesus wrestled was not in the desire for bread nor power, but in the temptation to throw himself down from the mountain and prove that God was protecting him--Jesus resolved that the power that created the universe was within himself, and the rest of his creativity was up to him. Jesus learned to speak at ONE authority. 
+
+I think Spinoza said it best when he said,
+
+> *"Whoso loveth God truly must not expect to be loved by Him in return"*
+
+The brave man knows that the love of God is its own reward because beauty and truth are to be loved because they are good, not because they will rebound to the credit of the artist or scientist or philosopher who loves them.
+
+**NOTE:** This does NOT imply some sort of martyr-like attitude for seeking truth, rather a love of something for its own sake. 
+
+Anxiety should be treated as a marker for what you KNOW you get to fulfill. Ask yourself, "what anxiety makes me **now** wish to run to the wings of an authority, and what problem of my own am I trying to evade?"
+
+Religious faith is not "bad" or "good" any more so than science or philosophy. The question is rather *how much* the belief or practice is, for a given **individual** (rather than community), an *escape* from his freedom? Or, how much of it is a way of strengthening him in existence of his own responsibility and ethical power.
+
+### The Creative use of the past
+
+
+
+ 
+
+
+
+
 # What is the foundational knowledge required for me to learn this?
 - Existentialism
 - Jungian Psychology

@@ -1269,9 +1269,76 @@ Religious faith is not "bad" or "good" any more so than science or philosophy. T
 
 ### The Creative use of the past
 
+> To the extent that an adult individual has achieved some freedom and identity as a self, he has a base from **which to acquire** the wisdom in the past traditions of his society and to make it his. **But if this freedom is missing**, traditions are blocked rather than enriched. They may become an internalized set of traffic rules, but they still have little or no practical influence on one's inward development.
+
+The above statement makes practical sense--we don't really know why things are the why they are until we fully experience life. We may wonder why families are the way they are, or why certain institutions exist. The reality is, we won't really know until we have practical experience of life ourselves.
+
+> The greater a person's awareness is of himself, the more he can acquire the wisdom of his fathers to make it his.
+
+One of the distinguishing marks of strength as a self is the capacity to immerse one's self in tradition and at the same time be one's own unique self.
+
+#### The impact of wonder
+
+When one is able to relate creatively to the wisdom of his fathers in the ethical and religious tradition he finds that he discovers anew his capacity for **wonder**.
+
+Those who take a rigid view either of religious or scientific truth become more dogmatic and lose the capacity for wonder.
+
+But wonder adds to the zest of the one who has found freedom, and zest to their conviction of meaning in life.
+
+One's religious attitude is to be found at the point where he has a conviction that there are values in human existence worth living and dying for.
+
+Wonder is the opposite of cynicism and boredom; it indicates that a person has a heightened aliveness, is interested, expectant, and responsive. It is an "openness" attitude--an awareness that there is more to life than one has yet fathomed. 
+
+Wonder and humility go together.
+
+It is important to emphasize that the connotation with wonder and humility are not that of a person being *passive*; this is a common misconception. In reality, creative experience (like wonder, love, etc) is a greatly heightened consciousness and very intense activity on our own part. Even responsiveness implies aliveness.
+
+The misconception may come from people who view love as something they "fall into"--the reality is, the true blessing is in the active struggle, work, and creation of that love.
+
+#### What is our conscience?
+
+The general tendency is to think of conscience as that which tells the individual what *not* to do, as though it were acting against what one supposedly "wants" to do.
+
+But May claims that conscience is not a set of handed-down prohibitions to constrict the self, rather conscience is one's capacity to tap one's own deeper levels of insight, ethical sensitivity, and awareness in which **tradition** and immediate **experience** are not opposed to each other but interrelated.
+
+### The Person's power to do the valuing
+
+As I read the introduction of this chapter, it seems even my own interpretation of May's work is not fully correct.
+
+There are two common viewpoints May encounters:
+1. What is necessary is to simply work out a new set of values
+2. "There's nothing wrong with the values of the past"
+
+> But both of these approaches miss the central problem: **That modern man has to a great extent lost the power to affirm and believe in *any* value**
+
+May argues that what the individual **needs** is a *prior* capacity, or the power to do the valuing from his own judgement.
+
+> When man seeks to "find" a center of value, he does with with the same attitude of shopping for a coat--he sees what's "in style" these days and looks at what the group *expects* of him. This is partly to contribute to the emptiness in our society.
+
+The values one truly attains cannot be intellectually debated, because the person's experience in life has allowed him to accept them as realities.
+
+A shift from "I love my children because of the theoretical ideal of raising a generation" versus "I love my children because I actually experience it".
+
+A response that leads to a person to ultimately say, in a debate, "if you haven't experienced it yourself, I can't explain it to you"
+
+> In actual life, the real value is something we experience as connected with the reality of our activity--any verbal or written discussion is on a quite secondary level.
+
+> To be sure, **no act of integrity is perfect**; one will always have to struggle, doubt, and conflict. It means only that one has endeavored to act as nearly as possible form the "center" of himself, that he admits and is aware of the fact that **his motives are not completely clear** and assumes responsibility for making them clearer as he learns in the future.
+
+In this emphasis on inner motives in ethical acts, the findings of modern psychotherapy and the ethical teachings of Jesus have their clearest parallel. For the external point in Jesus' ethics was his shifting the emphasis from the external rules of the 10 commandments to inward motives.
+
+What does this practically mean? That the ethical issues of life are not simply "thou shalt not kill" but rather are inward attitudes toward other persons--anger, resentment, exploitative "lust of the heart", "railings", "jealousies", so on and so fourth.
+
+> Naturally, myself included, some persons will be frightened by the freedom in such an ethics of inwardness, and made anxious by the responsibility which this places on each man's decision. They may *react* by yearning for the "rules", the absolutes, the "ridged ancient laws", which relieves us of "this fearful burden of free choice". 
+
+The truth in the "inner light" tradition in religious history is that one must always begin with himself. In the Socratic view, each individual is his own center, and the entire world centers in him, because his self-knowledge is a knowledge of God.
 
 
- 
+
+## Chapter 7: Courage, the virtue of Maturity
+
+### The courage to be one self
+
 
 
 

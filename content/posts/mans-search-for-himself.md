@@ -889,11 +889,12 @@ Here are the stages of becoming a person:
 
 ## Chapter 5: Freedom and Inner Strength
 
-### One Sentence Summary
+### Summary
+#### One Sentence Summary
 
 Freedom is the opportunity to realize even greater human values through man’s capacity to direct his own development by adopting greater responsibility in proportion to his greater self-awareness.
 
-### One Paragraph Summary
+#### One Paragraph Summary
 
 This chapter speaks on two topics: (1) the consequential emotions we experience after being denied freedom (that is, how to be aware of why we feel hatred and resentment)(2) And then an analysis on what Freedom really is.
 
@@ -1109,6 +1110,25 @@ When one consciously chooses to **live**, two things happen:
 
 
 ## Chapter 6: The Creative Conscious
+
+### Summary
+
+### One Sentence Summary
+
+The chapter explores two main themes: (1) the struggle of developing creative consciousness and how individuals can integrate wisdom from the past without hindering their own self-development, emphasizing the importance of courageously embracing personal growth while acknowledging the fear and anxiety that come with it (2) the significance of achieving freedom and self-identity to effectively engage with traditions and develop one's conscience for deeper insight and ethical sensitivity.
+
+### One Paragraph Summary
+
+Here are the two major themes covered in this chapter: (1) The struggle involved in developing creative consciousness (2) how  man can relate to wisdom of the past without hindering his self development. 
+
+We may learn quite a bit from the classical stories of the past and the price of man's creative conscious; Prometheus’ perpetual torture represents the inner conflict of the man who dares to bring mankind new forms of life through his creative act of being. More importantly, the anxiety of Adam and Eve of consciously knowing good from evil and the torture of Prometheus tell us that psychologically, within the creative person himself, there is fear in moving ahead beyond safety.
+
+In the pursuit of this creative act of being, we're actively struggling against the two sides of ourselves: (1) A courageous side that goes against the odds to defend freedom and personal growth; a side that is confident in meaning and value in life and courageous to accept the loneliness that comes with walking our own path (2) A servile side which passively submits to comfort and security at the price of freedom and personal-growth,  avoiding having to face his loneliness and anxiety.
+
+For any man to affirm and believe in any value, he needs the power to do the valuing from his own judgement; he admits and is aware of the fact that his motives are not completely clear and assumes responsibility for making them clearer as he learns in the future. this admission of one’s ignorance is the beginning of wisdom through which he can creatively use his powers to transcend his limitations only as he humbly and honestly as he admits these limitations to begin with.
+
+To the extent that an adult individual has achieved some freedom and identity as a self, he has a base from which to acquire the wisdom in the past traditions of his society and to make it his. The greater a person’s awareness is of himself, the more he can acquire the wisdom of his fathers to make it his. But if this freedom is missing, traditions are blocked rather than enriched, and they may become an internalized set of traffic rules with little or no practical influence on one’s inward development. One of the distinguishing marks of strength as a self is the capacity to immerse one’s self in tradition and at the same time be one’s own unique self; he develops his conscience to tap deeper levels of insight, ethical sensitivity, and awareness in which tradition and immediate experience are interrelated.
+
 
 ### Intro
 

@@ -1359,6 +1359,42 @@ The truth in the "inner light" tradition in religious history is that one must a
 
 ### The courage to be one self
 
+This chapter is devoted to the virtue of courage!
+
+Courage is the capacity to meet the anxiety which arises as one achieves freedom. It is the willingness to differentiate, to move from the protecting realms of parental dependance to new levels of freedom and integration.
+
+Courage, in the final analysis, is nothing but an affirmative answer to the shock of existence, which must be borne for the actualization of one's own nature.
+
+> **The opposite of courage is conformity**
+
+People lack courage because of their fear of being alone, isolated, or being subject to "social isolation" as an outcast. 
+
+Their fear is valid, because for much of early society, many people withered away and died as a result of being treated as though they did not exist.
+
+Thus, when we emphasize standing on one's own belief, we do not at all imply living in a vacuum of isolation; actually, courage is the basis of any creative relationship. 
+
+Think back to the gifted man who has trouble with his career, relationships, and fulfillment (See Chapter 4, section "Cutting the Psychological Umbilical Cord"):
+- fear of women by way of their mother
+- fear of the woman's dominance
+- fear of becoming dependent on her
+
+But when the neurotic anxiety is overcome, courage then must go along with the capacity to relate, and this courage is shown in the capacity for intimacy.
+
+It takes courage not only to assert one's self but to give one's self.
+
+Courage is the prerequisite for the creative being.
+
+One of the reasons creative activity takes so much courage is that to create stands for becoming free from the ties to the infantile past, breaking the old in order that the new can be born.
+
+Being engaged in creative work (art, business, research, etc) AND creating one's self (becoming freer through the voluntary adoption of more responsibility) are two aspects of the same process.
+
+That's related to how Naval mentions how "business" is not a skill that can be taught--the pursuit of business success is really an extension of one's own being.
+
+Every act of genuine creativity means achieving a higher level of self-awareness and personal freedom, and that, as we've learned from Adam and Eve and Prometheus, will involve considerable inner conflict.
+
+May paints a beautiful picture of a person who finally develops courage. He takes the courage to leave his family and go out and pursue his purpose, only to then be confronted with deep anxiety and loneliness, and the threat of suicide. His dreams would have the common theme, "If you create, you will leave the familiar, and you will be lonely and die; better to stay with the familiar and not create". This of course is the common inner struggle one develops as he pursues his creative calling.
+
+Side note: This is exactly what happened to me. When I developed the courage to move across the country, I left behind much of what was familiar with me. At first it was fun, but when stress came, I caved in and flew right back home.
 
 
 

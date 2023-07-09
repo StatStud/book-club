@@ -29,6 +29,16 @@ The world is abundant with creation.
 
 The iPhone, the Phili cheesesteak, the cuban sandwich, classical music, etc.
 
+Each of these remarkable accomplishments is a reflection of humanity being true to itself, the same way a humming bird is true to its nature.
+
+How do we pick up on a signal that can neither be heard nor defined? The answer is to not look for it. Nor do we attempt to predict or analyze our way into it. Instead, we create an open space to allow it. (similar to how Scott Adams creates opportunities for luck to find him).
+
+Early childhood is an example of this space. As children, we accept new information with delight instead of comparing it with what we already believe; we live in the moment rather than worrying about future consequences; we are spontaneous more than analytical; we are curious, not jaded.
+
+> Artists who are able to continually create great works throughout their lives often manage to preserve these child-like qualities. Practicing a way of being that allows you to see the world through uncorrupted, innocent eyes can free you to act in concert with the universe' timetable
+
+
+
 # The source of creativity
 # Awareness
 # The Vessel and the Filter

@@ -1464,7 +1464,23 @@ Side Note: to what extent am I doing this with my current mentor?
 
 > Love is generally confused with dependance; **you can only love in proportion to your capacity for independence**
 
-A parent should, likewise, learn when to allow the child space to develop his independence; a parent cannot expect the child to love them as "repayment" for taking care of them or "sacrificing" for them
+A parent should, likewise, learn when to allow the child space to develop his independence; a parent cannot expect the child to love them as "repayment" for taking care of them or "sacrificing" for them.
+
+We **receive** love in proportion to our own capacity to love; our capacity to love is in proportion to our capacity to be persons in our own right--our capacity for freedom.
+
+To love means to give, and this giving requires a maturity of self-feeling. Similar to what Spinoza said, truly loving God does not involve a demand for love in return the same way we may demand for love from our children.
+
+Another misconception people have about love is that it's self-sacrificing. We do not "give up" something in order to love; one gives **only** if he has *something* to give--a basis of strength within himself from which to give. Otherwise, what exactly is he giving?
+
+Yet another misconception is the idea that we "lose ourselves" in love--far from it! Like the creative conscience, it is the highest level of fulfillment of one's self. **It is a giving of one's self and finding one's self at once!** Such ecstasy represents the fullest of interdependence in human relations.
+
+This same paradox appears in the creative consciousness; one can merge one's self in ecstasy so long as he has gained the **prior capacity** to stand alone; to be a person in his own right. 
+
+So here is May's call to action for this section: Learning to love will proceed more soundly if we cease trying to persuade ourselves that love is easy, and if we are realistic enough to both call our emotions by their right names and abandon the illusory masquerades for love in a society which is always talking about love but has little of it. 
+
+
+
+
 
 
 # What is the foundational knowledge required for me to learn this?

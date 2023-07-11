@@ -1396,7 +1396,75 @@ May paints a beautiful picture of a person who finally develops courage. He take
 
 Side note: This is exactly what happened to me. When I developed the courage to move across the country, I left behind much of what was familiar with me. At first it was fun, but when stress came, I caved in and flew right back home.
 
+Courage is not to be confused with spectacular acts like a soldier's charge.
 
+Course IS the power to let go of the familiar and the secure.
+
+Courage is required not only in a person's occasional crucial decision for his own freedom, but in the little hour-to-hour decisions which place the bricks in the structure of his building of himself into a person who acts with freedom and responsibility.
+
+Thus, courage is not limited to heros. Brazen rashness is different from courage; rashness comes from compensating inner anxiety by courting external dangers. Courage must be judged as an inner state, otherwise external actions can be very misleading.
+
+It requires greater courage to preserve inner freedom, to move on in one's inward journey into new realms, than to stand definitely for outer freedom; it is often easier to play the martyr, as it is to be rash in battle. Strange as it sounds, **steady, patient growth** in freedom is probably the most difficult task of all, requiring the greatest courage.
+
+The greatest block to a person's development of courage is his having to take on a way of life which is not rooted in his own powers.
+
+Vanity and narcissism are the enemies of courage.
+
+Courage arises from one's sense of dignity and self-esteem; one is uncourageous if he thinks poorly of himself. 
+
+When one acts to gain someone else's praise, the act itself is a living reminder of the feeling of weakness and worthlessness. 
+
+The hallmark of courage in our age of conformity is the capacity to stand on one's own convictions for no other motive other than simply because these are what one truly believes. Courage is therefore an affirmative choice of "this is my self, my being" rather than a choice of "I can do no other" (if one *cannot* do any other, that is he is limited in his options of actions, then what courage is involved?)
+
+It also takes courage to achieve a new level of growth while withstanding the counterattack of anxious reaction within himself as well as the attacks of friends and family members who would be *more comfortable if he had remained the way he was* (remember what Jesus said in Matthew 10:36, "And a person's enemies will be those of his own household.")
+
+When in a person's development courage begins to emerge, he begins to break out of the pattern of seeking other people's approval. 
+
+We see thing when we first make the mistake of asking our parents for permission to be free; what this does is imply his lack of freedom, and his guilt if he asserts his freedom.
+
+> The hardest step in developing courage is accepting full responsibility for one's own standards and judgments, even though his wisdom is both limited and imperfect. 
+
+This is what Paul Tillich means when he said, "courage to accept one's finiteness"; it is the courage to be and trust one's self despite the fact that one is finite; it means acting, loving, thinking, creating, *even though* one knows he does not have the final answers, **and he may very well be wrong!** 
+
+It is only from this courageous acceptance of finitude that one develops the powers to fully integrate himself:
+- self-discipline
+- power to do the valuing
+- the creative conscience
+- the creative wisdom of the past
+
+All of these are the treasure behind the dragon; to confront the dragon is to be courageous.
+
+### A Preface to Love
+
+The most constructive place to begin learning to love is to see how we fail to love. Indeed, modern society is in dire need of love, BUT it is NOT helpful to tell people to "just love" because we as individuals are not even doing that good of a job of displaying love; to ask people to love when you yourself are not loving is to appear as a sham and hypocrisy, which is far worse than hostility because at least being hostile is honest.
+
+If we wish to contribute greatly to this world, we ought to work on ourselves to be better exemplars of loving people. 
+
+> Those who call for love loudest often express it the least
+
+While I've personally defined love on a personal level--that is one who is personally aligned with his mission, May provides us with a definition for external love:
+
+> Love is delight in the presence of the other people and an affirming of his value and development as much as one's own.
+
+May claims that there are two elements to love:
+1. The worth and good of the other person
+2. one's own joy and happiness in relation with him
+
+The capacity to love presupposes self-awareness, because love requires the ability to have empathy with the other people, to appreciate and affirm his potentialities.
+
+Love also presupposes freedom; certainly love which is not *freely given* is not love.
+
+Likewise, if one "loves" because one cannot do without the other, love is not given by choice; for one could not choose not to love. (This is the same argument behind Rabbi Manis Friedman).
+
+So in a society where everyone is dependent on the other, and each person is also highly anxious, lonely, and empty, it goes without saying that love is merely a veneer for something much deeper. 
+
+A common example of this discrepancy is when two people, feeling the burden of solitary and emptiness within themselves, relate to each other in a kind of unspoken bargain to keep each other from suffering loneliness. When "love" in engaged in for the purpose of vanquishing loneliness, it accomplishes its purpose but at the price of **increased emptiness** for both parties.
+
+Side Note: to what extent am I doing this with my current mentor?
+
+> Love is generally confused with dependance; **you can only love in proportion to your capacity for independence**
+
+A parent should, likewise, learn when to allow the child space to develop his independence; a parent cannot expect the child to love them as "repayment" for taking care of them or "sacrificing" for them
 
 
 # What is the foundational knowledge required for me to learn this?

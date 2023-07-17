@@ -1357,6 +1357,22 @@ The truth in the "inner light" tradition in religious history is that one must a
 
 ## Chapter 7: Courage, the virtue of Maturity
 
+### Summary
+
+#### One Sentence Summary
+
+The opposite of courage is conformity
+
+#### One Paragraph Summary
+
+This chapter introduces the concepts of love and truth, and the prerequisite courage that underpins the pursuit of both.
+
+Courage is the capacity to meet the anxiety which arises as one achieves freedom borne from the actualization of one's own nature. It is the willingness to differentiate, to move from the protecting realms of parental dependance to new levels of freedom and integration; the **power** to let go of the familiar and the secure. Courage is found in the **small, iterative, hour-to-hour decisions** which place the bricks in the structure of his building of himself into a person who acts with freedom and responsibility. The hardest step in developing courage is accepting full responsibility for one's own standards and judgments, **even though his wisdom is both limited and imperfect**; for it is the courage **to be and trust** one's self despite the fact that one is finite; it means acting, loving, thinking, creating, *even though* one knows he does not have the final answers, **and he may very well be wrong!** 
+
+The capacity to love presupposes both **self-awareness** and **freedom**; self-awareness in the ability to appreciate and affirm the potentialities of this fellow man, and freedom in that the choice to love is freely given. For the same reason self-awareness takes great work, conflict, and struggle, so too can we say the same about love. The extent of our love is in proportion to our capacity for independence; it is only after a person has achieved the **prior capacity** to stand alone as a person in his own right that permits him to freely to fully integrate himself with another. Like the creative conscience, this giving of one's self and finding one's self within the person is the highest level of fulfillment of one's self.
+
+The reason we do not **see** truth is because we do not have enough courage. To find the truth, and consequently the answers to one's questions, one must have the **courage** to venture into the unknown and risk discovering what one hates to see. He must have courage to interrogate himself and his beliefs without mercy. Truth is often missed *not* because it was unsought, *but* because the intention always was to *find again* some preconceived opinion that looks or sounds familiar. Seeing truth is a function not of the separate intellect, but of the whole man: one *experiences* truth in moving ahead as a **thinking-feeling-acting unity.**
+
 ### The courage to be one self
 
 This chapter is devoted to the virtue of courage!
@@ -1478,8 +1494,143 @@ This same paradox appears in the creative consciousness; one can merge one's sel
 
 So here is May's call to action for this section: Learning to love will proceed more soundly if we cease trying to persuade ourselves that love is easy, and if we are realistic enough to both call our emotions by their right names and abandon the illusory masquerades for love in a society which is always talking about love but has little of it. 
 
+### Courage to see truth
 
+Nietzsche one proclaimed "error is cowardice", meaning that the reason we do not **see** truth is because we do not have enough courage.
 
+To find the truth, and consequently the answers to your questions, one must have the courage to venture--whether one arrives at the best answer depends very intimately on the degree of one's maturity and courage.
+
+The finding of truth hinges greatly on the investigator's inner qualities of probity and courage.
+
+Truth is often missed *not* because it was unsought, *but* because the intention always was to find again some preconceived opinion--something that looks or sounds familiar--or at least not to wound some favorite idea. With this intention, truth is often missed.
+
+It is the courage to make a clean slate in the face of every question that makes the philosopher. The philosopher must have courage to interrogate himself without mercy.
+
+So, we see clearly from Nietzsche's idea that finding truth is less of an intellectual endeavor and more of a a capacity for one's self-awareness. 
+
+> To seek truth is to risk discovering what one hates to see
+
+Seeking truth requires a kind and forgiving relationship to one's self. 
+
+To see truth depends on man's ability to be conscious of himself. By this same consciousness he can also search within himself and find the wisdom which speaks to every man who ears to hear.
+
+People who struggle to find truth is not because they are too "self-aware" or inner focused, but rather their neurotic needs, repressions, and conflicts distort what they see. It's these symptoms of a weak inner identity that lead many to "transfer" some prejudice of our own to other people and the world around us.
+
+The more a person lacks self-awareness, the more he is prey to anxiety and irrational anger and resentment; anger and anxiety are the small blockers that prevent us from seeing truth.
+
+> Self-awareness is not a product of intellect
+
+**High intellect may help, but it can also block us from self-awareness when we misuse it to intellectualize and avoid solving the hard problems in reality**.
+
+> Seeing truth is a function not of the separate intellect, but of the whole man: one *experiences* truth in moving ahead as a **thinking-feeling-acting unity.**
+
+## Chapter 8: Man, the Transcender of Time
+
+### Summary
+
+#### One Sentence Summary
+
+Start right now.
+
+#### One Paragraph Summary
+
+To love reality is to be present in the current moment. The **practical** implication is that one's goal is to live each moment with freedom, honesty, and responsibility. The more a person is able to direct his life consciously, the more he can use time for constructive benefits. The wise man will not wait around for future rewards and punishments. Go forth this moment, in honesty, integrity, courage, and love. 
+
+### Man does not live by the clock alone
+
+Here we try to answer the fundamental questions concerning **TIME**
+- "Is all this worth the effort and struggle".
+- "Is it too late to start?"
+- "Why bother now?"
+
+Time permits man the capacity to conduct his life in the ever increasing light of inherited wisdom. 
+
+Man does not live by time alone, rather by the significance of events. For example, people can spend two hours in mindless commuting, or eight hours in a boring job, but 10 minutes talking to their crush--despite the first two events taking *quantitatively* more time, the *quality* of the 10 minutes is how he defines the outcome of his day--the 10 minutes with the girl takes up more "room-space" than 20 hours in the rest of the day.
+
+> Psychological time is not the sheer passage of time, but the *meaning* of the experience in relation to the person's hopes, anxiety, and growth.
+
+The more a person is able to direct his life consciously, the more he can use time for constructive benefits. However, if he is a conformist, unfree, and undifferentiated, then he works not by his choice but out of compulsion. The more conformist and unfree he is, the more time is the master; the more alive he is, the more he lives by qualitative time.
+
+> "A man who lives intensely really lives, but a man who lives to be 120 doesn't necessarily live at all."
+
+The passage of time in any age has the power to frighten the human being; such fear is generally a symbol for the fact that their consciousness of time always confronts them with questions of whether they are alive, growing, or merely trying to ward off ultimate decay and extinction.
+
+> "A peron is afraid of growing old to the extent that he is not really living now." - Carl Jung.
+
+Hence, it follows that the best way to meet the anxiety about growing old is to make sure one at the moment is fully alive.
+
+But even more significantly, people are afraid of time because, like being alone, it raises the specter of emptiness, of the frightening "void". This is shown everyday in the fear of boredom.
+
+> "Man is the only animal who can be bored" -Erich Fromm
+
+Man suffers unnecessarily when he desensitizes himself with addictions and gives up his consciousness just so that he does not have to experience boredom. A "good time" is thus defined as escaping boredom. 
+
+> One of the neurotic, unconstructive ways of using one's capacity to be aware of time is to postpone living.
+
+This happens all too much when we say "Things will be better when ---":
+- "I'm married"
+- "I get a new job"
+- "I move around"
+
+Essentially, these people (myself included), react to the feelings of emptiness and purposelessness by turning their minds to the future and asking, "What pleasant thing do I have to look forward to?"--they hope that their future fantasy and daydreams will deaden the present.
+
+That's not to say that hope is a negative attitude either--hope can be an energizing attitude that brings joy from some future event into the present so that by anticipation we are more alive and more able to act in the present.
+
+Thinking of the past can have the same escape function as thinking of the future.
+
+### The Pregnant Woman
+
+> The first thing necessary for a constructive dealing with time is to learn to live in the **reality** of the present moment. Psychologically speaking, this present moment is all we have. 
+
+The past and the future have meaning because they are part of the present: a past event has existence *now* because you are thinking about it at the present moment. The same can be said about the future.
+
+> To live in the "when" of the future or the "then" of the past always involves an artificiality--a detachment from reality because reality can only exist in this present moment.
+
+> To fall in love with reality is to love being this present moment
+
+**To confront the reality** of the present moment often produces anxiety with a vague experience of being "naked"--being face-to-face with some important reality before which one cannot flinch from which **one cannot retreat nor hide**.
+
+The more obvious reason why confronting the present produces anxiety is that it raises the question of decisions and responsibility. 
+
+The most effective way to ensure the value of the future is to **courageously** and **constructively** confront the present.
+
+### "In the light of eternity"
+
+May brings a nice example of an author who finally publishes his groundbreaking book when confronted with the fear of dying the next day. The book was a success because it was nto catering to any audience, but rather an extension of his own creative conscious.
+
+The wise man will not wait around for future rewards and punishments.
+
+Living in the present moment does not mean mere intensity of living, nor does it mean living by an absolute dogma. Rather, it means making one's decisions in freedom and responsibility, in self-awareness and in accord with one's own unique character as a person.
+
+### No Matter what the age
+
+The question of which age we live in is irrelevant. If anything, this moment right now is literally the best time in history.
+
+The real question we seek is how the individual, in his own awareness of himself and the period he lives in, is able through his decisions to attain inner freedom and to live according to his own inner integrity.
+
+No matter how "well integrated" a society may be at any given time, the task of achieving self-consciousness and the capacity for making one's own choices responsibly will always belong to the individual. Likewise, no traumatic world event can rob the individual of the privilege of making the final decision with regard to himself.
+
+On the more profound level, each individual must come to his own consciousness of himself, and he does this on a level which transcends the particular age he lives in.
+
+The same holds true for one's chronological age. The important issue is not whether a person is 20 or 80, rather it is whether he fulfills his own capacity of self-consciousness choice at his particular level of development.
+
+The person who can die courageously at 30-who has attained a degree of freedom and differentiation that he can face courageously the necessity of giving up his life-is more mature than the person who on his deathbed at 80 cringes and begs still to be shield from reality. 
+
+> The **practical** implication is that one's goal is to live each moment with freedom, honesty, and responsibility.
+
+Is one has courage to do so, he is then in a position to fulfill as much as he can in the present moment through his own nature. 
+
+> "Does not the uncertainly of our time teach us the most important lesson of all: that the ultimate criteria are the **honesty, integrity, courage, and love** of a **given moment** of relatedness?
+
+If we do not have that, we are not building for the future anyway. If we do have it, we can trust the future to itself.
+
+- Freedom
+- Responsibility
+- Courage
+- Love
+- Inner Integrity
+
+These are never perfectly realized by anyone, but are ideal goals for which we strive to attain each moment.
 
 
 
@@ -1488,6 +1639,7 @@ So here is May's call to action for this section: Learning to love will proceed 
 - Jungian Psychology
 
 # What ACTIONS/HABITS will I partake after reading this book?
+- After reading this book, I will move out of my parents' home
 
 # What Questions do I have after reading this book?
 

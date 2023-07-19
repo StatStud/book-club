@@ -12,6 +12,29 @@ cover:
 
 
 
+# Summary
+
+## One sentence summary
+
+The greatest good that we can contribute to society starts at the individual level by cultivating a strong sense of inner identity and strength.
+
+## One Paragraph Summary
+
+### The Issue at hand
+The symptoms of anxiety and loneliness are a result of deficiencies from within, rather than social prohibitions–leading to a sense of inner emptiness that people attempt to fill with external social expectations. People are living passively and avoiding taking responsibility because man has lost touch with what he feels and wants, calling us to begin introspectively asking what we want and living a life that aligns with those desires by molding a wholistic personality that unifies these qualities that make us individuals.
+
+### The struggle that lies ahead
+The struggle towards selfhood and freedom is primarily an internal conflict where we choose to remove the dependencies that tie us down at the cost of our individual freedom. On one hand, the temptation to be “sheltered”, to regress, to be “passive” and “blunted”, are symbolized by the natural tendency to go back to the warm and familiar womb and “waste inward” our self potentialities; on the other hand, maturity and freedom as an individual are the opposite tendencies, and these lead to the psychological integration of “falling in love outward” or the great empathy of loving thy neighbor as thyself. The man who pursues his self development accepts responsibility for his own life as something he has chosen for himself and sees discipline as necessary for the sake of values he wishes to realize; he admits and is aware of the fact that his motives are not completely clear and assumes responsibility for making them clearer as he learns in the future, yet it is this admission of one’s ignorance that marks the beginning of wisdom through which he can creatively use his powers to transcend his limitations only as he humbly and honestly as he admits these limitations to begin with.
+
+### The impact of our development on ourselves, other people, and the world around us
+This active internal struggle towards selfhood can lead to the discovery of a higher consciousness from which new powers are granted. we may see truth as it presents itself, love others by appreciating and affirming their potentialities without demand for ourselves, and create in ecstasy that occurs when were are totally observed in what we are doing. The man with a strong self identity has the capacity to immerse one’s self in tradition and at the same time be one’s own unique self; he develops his conscience to tap deeper levels of insight, ethical sensitivity, and awareness in which tradition and immediate experience are interrelated. The man with the strong identity lives in the present moment, for he realizes that to love reality means to be present in the current moment. For that reason, he does not wait for things to happen, but goes out and makes it happen, right at this moment.
+
+### Above all else, COURAGE!
+Courage is the capacity to meet the anxiety which arises as one achieves freedom borne from the actualization of one’s own nature. It is the willingness to differentiate, to move from the protecting realms of parental dependance to new levels of freedom and integration; the power to let go of the familiar and the secure. Courage is found in the small, iterative, hour-to-hour decisions which place the bricks in the structure of his building of himself into a person who acts with freedom and responsibility. The hardest step in developing courage is accepting full responsibility for one’s own standards and judgments, even though his wisdom is both limited and imperfect; for it is the courage to be and trust one’s self despite the fact that one is finite; it means acting, loving, thinking, creating, even though one knows he does not have the final answers, and he may very well be wrong!
+
+The reason we do not see truth is because we do not have enough courage; truth is often missed not because it was unsought, but because the intention always was to find again some preconceived opinion that looks or sounds familiar. To find the truth, and consequently the answers to one’s questions, one must have the courage to venture into the unknown and risk discovering what one hates to see. He must have courage to interrogate himself and his beliefs without mercy.  Seeing truth is a function not of the separate intellect, but of the whole man: one experiences truth in moving ahead as a thinking-feeling-acting unity.
+
+
 # Part 1: Our Predicament
 
 ## Chapter 1: The Loneliness and Anxiety of Modern Man

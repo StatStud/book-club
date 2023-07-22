@@ -11,12 +11,33 @@ cover:
 ---
 
 
+# What is the foundational knowledge required for me to learn this?
+- Existentialism
+- Jungian Psychology
+
+# What ACTIONS/HABITS will I partake after reading this book?
+- After reading this book, I will move out of my parents' home
+
+# What Questions do I have after reading this book?
+
+# What Phrase(s) can I add/validate to my mantras?
+- Courage is found in the small, iterative, hour-to-hour decisions which place the bricks in the structure of his building of himself into a person who acts with freedom and responsibility
+- The opposite of courage is conformity
+- The issues of society are a reflection of man's weak and undeveloped inner strength and lack of self of identity
+- Aliveness often means the capacity to **not act**, but to instead be **creatively idle**--which may be more difficult for most modern people than to do something.
+- A **single person** with indigenous inner strength exercises a great calming effect on panic among people around him.
+- All man's history is an endeavor to shatter his loneliness
+- All of humanity's problems stem from man's inability to sit quietly in a room alone
+- In the same way we may lose the distinction between wakefulness and sleep when sleep-deprived, we may lose the distinction between the subjective self and the objective world around us when we are socially deprived. The people in our lives orient us. Every human being gets much of his sense of his own reality out of what others say to him and think about him.
+- Anxiety is helplessness/powerlessness in the face of an unidentified adversity; not knowing the threat, and therefore not knowing what plan of action to take; The great bulk of our anxiety comes when some value we hold essential to our existence as selves is threatened
+- we experience ourselves as a **thinking-intuitive-feeling and acting unity**
+- Energy is Eternal Delight. He who desires but acts not breeds pestilence
+- The path towards the self in a journey that **begins** with **rediscovery**--that is to imply, that with which we were previously intimate, but have forgotten.
 
 # Summary
 
 ## One sentence summary
-
-The greatest good that we can contribute to society starts at the individual level by cultivating a strong sense of inner identity and strength.
+The greatest good that we can contribute to society over the long run starts at the individual level by cultivating a strong sense of inner identity and finding the center of strength within ourselves; a **single person** with indigenous inner strength exercises a great calming effect on panic among people around him.
 
 ## One Paragraph Summary
 
@@ -1654,17 +1675,4 @@ If we do not have that, we are not building for the future anyway. If we do have
 - Inner Integrity
 
 These are never perfectly realized by anyone, but are ideal goals for which we strive to attain each moment.
-
-
-
-# What is the foundational knowledge required for me to learn this?
-- Existentialism
-- Jungian Psychology
-
-# What ACTIONS/HABITS will I partake after reading this book?
-- After reading this book, I will move out of my parents' home
-
-# What Questions do I have after reading this book?
-
-# What Phrase(s) can I add/validate to my mantras?
 

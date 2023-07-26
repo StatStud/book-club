@@ -34,6 +34,7 @@ cover:
 - Energy is Eternal Delight. He who desires but acts not breeds pestilence
 - The path towards the self in a journey that **begins** with **rediscovery**--that is to imply, that with which we were previously intimate, but have forgotten.
 - Freedom is never the opposite of responsibility; nor is it the absence of a plan--it is the free will to accept responsibility on your own terms
+- Freedom is the opportunity to realize even greater human values through man’s capacity to direct his own development by adopting greater responsibility in proportion to his greater self-awareness
 
 # Summary
 

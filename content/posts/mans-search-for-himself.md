@@ -35,6 +35,10 @@ cover:
 - The path towards the self in a journey that **begins** with **rediscovery**--that is to imply, that with which we were previously intimate, but have forgotten.
 - Freedom is never the opposite of responsibility; nor is it the absence of a plan--it is the free will to accept responsibility on your own terms
 - Freedom is the opportunity to realize even greater human values through man’s capacity to direct his own development by adopting greater responsibility in proportion to his greater self-awareness
+-  Matthew 10:36, "And a person's enemies will be those of his own household."
+- The path to self is not only about learning to feel, experience, and desire, but to **fight** against what prevents us from loving outwardly and creating independently while **actively** (rather than passively) **struggling** to achieve our dream of freedom as a person in our own right.
+    - we must kill-off the infantile ties of dependency which binds the person to the parents, and thereby keeps him from loving outwardly and creating independently. 
+    - "I have fallen in love outward"--the final phrase of Orestes as he leaves the city, representing the goal of man's psychological integration
 
 # Summary
 

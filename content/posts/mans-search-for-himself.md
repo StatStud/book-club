@@ -27,8 +27,8 @@ cover:
 - Aliveness often means the capacity to **not act**, but to instead be **creatively idle**--which may be more difficult for most modern people than to do something.
 - A **single person** with indigenous inner strength exercises a great calming effect on panic among people around him.
 - All man's history is an endeavor to shatter his loneliness
-- All of humanity's problems stem from man's inability to sit quietly in a room alone
-- In the same way we may lose the distinction between wakefulness and sleep when sleep-deprived, we may lose the distinction between the subjective self and the objective world around us when we are socially deprived. The people in our lives orient us. Every human being gets much of his sense of his own reality out of what others say to him and think about him.
+    - All of humanity's problems stem from man's inability to sit quietly in a room alone
+    - In the same way we may lose the distinction between wakefulness and sleep when sleep-deprived, we may lose the distinction between the subjective self and the objective world around us when we are socially deprived. The people in our lives orient us. Every human being gets much of his sense of his own reality out of what others say to him and think about him.
 - Anxiety is helplessness/powerlessness in the face of an unidentified adversity; not knowing the threat, and therefore not knowing what plan of action to take; The great bulk of our anxiety comes when some value we hold essential to our existence as selves is threatened
 - we experience ourselves as a **thinking-intuitive-feeling and acting unity**
 - Energy is Eternal Delight. He who desires but acts not breeds pestilence
@@ -39,6 +39,8 @@ cover:
 - The path to self is not only about learning to feel, experience, and desire, but to **fight** against what prevents us from loving outwardly and creating independently while **actively** (rather than passively) **struggling** to achieve our dream of freedom as a person in our own right.
     - we must kill-off the infantile ties of dependency which binds the person to the parents, and thereby keeps him from loving outwardly and creating independently. 
     - "I have fallen in love outward"--the final phrase of Orestes as he leaves the city, representing the goal of man's psychological integration
+- The hardest step in developing courage is accepting full responsibility for one's own standards and judgments, **even though his wisdom is both limited and imperfect**; for it is the courage **to be and trust** one's self despite the fact that one is finite; it means acting, loving, thinking, creating, *even though* one knows he does not have the final answers, **and he may very well be wrong!**
+- The temptation to be "sheltered", to regress, to be "passive" and "blunted", are **symbolized** by the natural tendency to go back to the womb, and that maturity and freedom as an individual are the **opposite tendencies**
 
 # Summary
 

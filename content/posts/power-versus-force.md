@@ -107,10 +107,60 @@ Most people read books progressively, from the first chapter to the last. But th
 This book undergoes the challenge of presenting this material in the paradox of comprehending nonlinear concepts in a linear, sentence-by-sentence, structure. The book accomplishes this by using man's innate pattern recognition mechanism by applying repetitions to the fundamental lessons until they become familiar.
 
 
-
 # Part 1: Tools
 
 ## Chapter 1: Critical Advances in Knowledge
+
+
+What makes kinesiology special is that it exposes the intimate connection between the mind and the body.
+
+All paths of inquiry (philosophy, theology, etc) converge to a common point: the quest for an organized understanding of the nature of pure consciousness.
+
+Subjective and objective are the same; the insights from the fields of study such as nonlinear dynamics, quantum physics, or AI transcend the limited viewpoint that creates the illusion of duality.
+
+If the subjective and objective are indeed the same, then we can find the answers to all questions by merely looking **within** man himself.
+
+By simply recording observations, we can see a grand picture emerge, one that sees no limitations with respect to further investigation.
+
+The human mind is the most advance computer known to man, and it's freely available to man at any time and any place. The body can discern the difference between that which is supportive of life and that which is not, for all living things react positively to what is life-supporting and negatively to what is not--this is the fundamental mechanism of survival.
+
+Inherent in **all** forms of life is the capacity to detect change and react correctively. 
+- trees become smaller at high altitudes where oxygen is scarce
+- long distance runners are light while sprinters are muscular
+
+Attractor research is the field of study that concerns itself with the mapping of fields of human consciousness; it's concerned with the identification of power ranges of energy fields utilizing critical point analysis (for example, it's possible to paralyze a large windmill just by knowing where the stop switch is).
+
+It's worth mentioning in this talk of nonlinear dynamics the difference in problems solving compared to conventional methods. In Newtonian problem solving (which is what the world is familiar with), we start with the facts and linearly work though time via definite steps and logical progression to arrive at the unknown (answer).
+
+Nonlinear dynamics works the **opposite way**: from the unknown (the nondeterministic data of the question) to the known (the answer). **It operates within a different paradigm of causality**. The problem is then seen as one of definition and access, rather than a logical sequence. 
+
+## Attractors
+
+Attractor is the name given to an identifiable pattern that emerges from a seemingly unmeaningful mass of data.
+
+## Fields of Dominance
+
+A field of dominance is exhibited by high energy patterns in their influence over weaker ones.
+
+## Critical Point of Analysis
+
+The critical point is simply the one point that, even when slightly touched, can stop the entire system. In other words: the critical point is the point where **the least force exerts the greatest effect.**
+
+Advance theoretical physics (contributions form Einstein, Bohr, Heisenberg, Bell, etc.) demonstrated that everything in the universe is subtly dependent upon everything else.
+
+## Causality
+
+Causality as we know it follows a deterministic linear sequence A -> B -> C (A causes B, which leads to B causing C).
+
+But in the nonlinear dynamics paradigm, the thing that causes this entire sequence (A -> B -> C) is actually **unobservable**, while the chain of reactions (A -> B -> C) *is* observable.
+
+![](/power-versus-force1.png)
+
+Practically speaking, this means that the typical problems that the world attempts to deal with exist on the observable level of A -> B -> C, but Hawkins is interested in finding the inherent attractor pattern *out of which* the (A -> B -> C) events arise.
+
+One of the core concepts of chaos theory is the *the law of sensitive dependence on initial conditions*, where extremely minute variations over a course of time can have the effect of producing profound changes (e.g. a plane that's one degree off from it's destination). This phenomenon is an essential mechanism of all evolution and also underlies the potential of the creative process. 
+
+Hawkins claims that the source of man's intellectual frustration is his attempt to "make sense" (via linear, logical, and rational methods) frequently unpredictable human behavior that's inherently nonlinear. 
 
 ## Chapter 2: History and Methodology
 

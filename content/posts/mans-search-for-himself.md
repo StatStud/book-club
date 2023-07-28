@@ -44,6 +44,7 @@ cover:
 - When one consciously chooses to **live**, two things happen: (1) His **responsibility** for himself takes on a new meaning. 
     - He accepts responsibility for his own life not as something with which he was forcibly burden with ("I didn't choose to be born"); **but as something he has chosen for himself**
     - For this reason, himself now exists as a result of a decision he himself has made
+- Freedom is involved when we accept the realities not by blind necessity but by choice
 
 # Summary
 

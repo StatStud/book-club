@@ -179,6 +179,15 @@ Hawkins claims that the source of man's intellectual frustration is his attempt 
 
 ### Summary
 
+#### One Sentence Summary
+
+This chapter focuses on the technical use of the kinesiologic test.
+
+#### One Paragraph Summary
+
+This chapter focuses on the technical use of the kinesiologic test.
+
+
 ### Notes
 
 Hawkins designs an experiment that runs 20 years across different countries and people. Basically emphasizing that the experiment was scientifically sound.
@@ -191,6 +200,29 @@ Overall, good nutrition matters for mental wellbeing.
 
 #### The testing Technique 
 
+The muscle test for truth can only be used with existing condition, declarative statements, rather than future inquiries.
+
+#### Use of the Testing Procedure in This study
+
+The technique should be used responsibly.
+
+#### Discrepancies
+
+People change over time, people have different sensory modalities, and values extracted will be arbitrary (unless a range is specified beforehand).
+
+#### Limitations
+
+10% of the population cannot use the kinesiologic test. The test is accurate only if the participant themselves calibrate over 200. Also, sometimes married couples are unable to test each other, so ideally the tester should be an independent third party.
+
+#### Disqualifications
+
+Skepticism and cynicism both calibrate to below 200 because they reflect negative prejudice. In contrast, true inquiry requires an open mind and honesty devoid of intellectual vanity.
+
+> true inquiry requires an open mind and honesty devoid of intellectual vanity
+
+Below consciousness level 200, comprehension is limited by the dominance of Lower Mind, which is capable of reorganizing facts but not yet able to grasp what is meant by the term "truth". 
+
+## Chapter 3: Test Results and Interpretation
 
 
 ## Chapter 3: Test Results and Interpretation

@@ -16,7 +16,7 @@ cover:
 - Jungian Psychology
 
 # What ACTIONS/HABITS will I partake after reading this book?
-- After reading this book, I will move out of my parents' home
+- The day after I finished reading this book, I officially moved out of my parent's house and lived life 100% from my own choices
 
 # What Questions do I have after reading this book?
 
@@ -41,6 +41,9 @@ cover:
     - "I have fallen in love outward"--the final phrase of Orestes as he leaves the city, representing the goal of man's psychological integration
 - The hardest step in developing courage is accepting full responsibility for one's own standards and judgments, **even though his wisdom is both limited and imperfect**; for it is the courage **to be and trust** one's self despite the fact that one is finite; it means acting, loving, thinking, creating, *even though* one knows he does not have the final answers, **and he may very well be wrong!**
 - The temptation to be "sheltered", to regress, to be "passive" and "blunted", are **symbolized** by the natural tendency to go back to the womb, and that maturity and freedom as an individual are the **opposite tendencies**
+- When one consciously chooses to **live**, two things happen: (1) His **responsibility** for himself takes on a new meaning. 
+    - He accepts responsibility for his own life not as something with which he was forcibly burden with ("I didn't choose to be born"); **but as something he has chosen for himself**
+    - For this reason, himself now exists as a result of a decision he himself has made
 
 # Summary
 

@@ -112,6 +112,19 @@ This book undergoes the challenge of presenting this material in the paradox of 
 ## Chapter 1: Critical Advances in Knowledge
 
 
+### Summary
+
+#### One Sentence Summary
+
+Advances in STEM fields have led to new insights into human consciousness.
+
+
+#### One Paragraph Summary
+
+Nonlinear dynamics works the **opposite way**: from the unknown (the nondeterministic data of the question) to the known (the answer). **It operates within a different paradigm of causality**. The problem is then seen as one of definition and access, rather than a logical sequence. 
+
+### Notes
+
 What makes kinesiology special is that it exposes the intimate connection between the mind and the body.
 
 All paths of inquiry (philosophy, theology, etc) converge to a common point: the quest for an organized understanding of the nature of pure consciousness.
@@ -134,21 +147,21 @@ It's worth mentioning in this talk of nonlinear dynamics the difference in probl
 
 Nonlinear dynamics works the **opposite way**: from the unknown (the nondeterministic data of the question) to the known (the answer). **It operates within a different paradigm of causality**. The problem is then seen as one of definition and access, rather than a logical sequence. 
 
-## Attractors
+#### Attractors
 
 Attractor is the name given to an identifiable pattern that emerges from a seemingly unmeaningful mass of data.
 
-## Fields of Dominance
+#### Fields of Dominance
 
 A field of dominance is exhibited by high energy patterns in their influence over weaker ones.
 
-## Critical Point of Analysis
+#### Critical Point of Analysis
 
 The critical point is simply the one point that, even when slightly touched, can stop the entire system. In other words: the critical point is the point where **the least force exerts the greatest effect.**
 
 Advance theoretical physics (contributions form Einstein, Bohr, Heisenberg, Bell, etc.) demonstrated that everything in the universe is subtly dependent upon everything else.
 
-## Causality
+#### Causality
 
 Causality as we know it follows a deterministic linear sequence A -> B -> C (A causes B, which leads to B causing C).
 
@@ -163,6 +176,22 @@ One of the core concepts of chaos theory is the *the law of sensitive dependence
 Hawkins claims that the source of man's intellectual frustration is his attempt to "make sense" (via linear, logical, and rational methods) frequently unpredictable human behavior that's inherently nonlinear. 
 
 ## Chapter 2: History and Methodology
+
+### Summary
+
+### Notes
+
+Hawkins designs an experiment that runs 20 years across different countries and people. Basically emphasizing that the experiment was scientifically sound.
+
+#### Historical background
+
+The most striking findings of kinesiology is the demonstration that muscles instantly became weak when the body is exposed to harmful stimuli, while substances that were therapeutic to the body made the muscles instantly strong.
+
+Overall, good nutrition matters for mental wellbeing.
+
+#### The testing Technique 
+
+
 
 ## Chapter 3: Test Results and Interpretation
 

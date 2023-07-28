@@ -45,6 +45,8 @@ cover:
     - He accepts responsibility for his own life not as something with which he was forcibly burden with ("I didn't choose to be born"); **but as something he has chosen for himself**
     - For this reason, himself now exists as a result of a decision he himself has made
 - Freedom is involved when we accept the realities not by blind necessity but by choice
+    - This also means that the acceptance of limitations need not at all be a reason to give up, but can and should be a **constructive** act of freedom.
+    - Two groups of people may be sick, or have short height, or have two left feet. One group will always give up and dwell in self-pitty. The other group will recognize the event as something that happens for them rather than to them, and actively struggle to enlarge their self-knowledge and freedom
 
 # Summary
 

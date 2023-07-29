@@ -47,6 +47,7 @@ cover:
 - Freedom is involved when we accept the realities not by blind necessity but by choice
     - This also means that the acceptance of limitations need not at all be a reason to give up, but can and should be a **constructive** act of freedom.
     - Two groups of people may be sick, or have short height, or have two left feet. One group will always give up and dwell in self-pitty. The other group will recognize the event as something that happens for them rather than to them, and actively struggle to enlarge their self-knowledge and freedom
+    - Freedom does not mean trying to live in isolation. But it does mean that when one is able to confront his isolation, he is able consciously to choose to act, with some responsibility, in the structure of his relations with the world of other persons around him.
 
 # Summary
 

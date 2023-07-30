@@ -25,6 +25,8 @@ cover:
 # What Questions do I have after reading this book?
 
 # What Phrase(s) can I add/validate to my mantras?
+- In relationships, we may often shoot ourselves in the foot with a core belief: "I am not worthy of you, so you must not be faithful to me"
+- We don't **need** (keyword here, preferences) someone else's respect in order to have **respect for ourselves**.
 
 # Introduction 
 
@@ -234,6 +236,79 @@ When a person suffers from very low self-esteem, it doesn't matter how accomplis
 
 
 ## Chapter 4: Step Right Up and Choose your Reality
+
+### Summary
+
+#### One Sentence Summary
+
+The ego is the part of us that desires to misinterpret events in negative light from fear; the soul is the part of us that desires accurate, complete, wholistic understanding of events and their proper place, and to respond with unlimited love.
+
+#### One Paragraph Summary
+
+The ego is the part of us that desires to misinterpret events in negative light from fear; the soul is the part of us that desires accurate, complete, wholistic understanding of events and their proper place, and to respond with unlimited love. The more we interpret events through the soul, the more our self-esteem grows; the more our self-esteem grows, the greater our capacity to both receive and give love and respect. Events don't mean anything until we choose which lense we wish to interpret the event. A highly successful person does not have time to disrespect you. As the end of the day, we choose the stories we tell ourselves.
+
+### Notes
+
+> Each circumstance we encounter is like a blank book until we write the script with our thoughts. 
+
+When someone acts rudely towards us, it doesn't mean anything until we give it meaning.
+
+> Hanlon's razor: never attribute to malice that which can be adequately explained by ignorance
+
+> We don't **need** (keyword here, preferences) someone else's respect in order to have **respect for ourselves**.
+
+> whatever the circumstance or situation, we're really only concerned with one question: **"what does this mean?"** 
+
+> That's what anger comes down to; it's not only that you take it personally, but it's the **belief** that **this person treated me this way because there's something wrong with me**
+
+As mentioned in chapter 2, if you don't love and respect yourself, then you can't imagine why anyone else would have positive feelings toward you; you connect the dots of someone else's behavior to validate that inaccurate belief.
+
+Here's the one liner: a highly successful person does not have time to disrespect you.
+
+> How much pain must this person be in to treat someone as wonderful as me so poorly?
+
+How someone behaves towards you is a reflection of his own feelings of self-worth and has nothing to do with your intrinsic worth--unless you let your ego decide to make it about you.
+
+#### It's not me, It's you
+
+As long as we are alert to the pain of the other people, the entire interaction is automatically reframed and we will not *feel* pained because we will not *be* in pain. But the moment we become self-focused we will draw the inevitable conclusion that his treatment is because we are less--rather than *he* feels less. 
+
+> It's not the situation that determines how you feel but the meaning that we attach to it (CBT)
+
+And that meaning is always based on one thing: **how we feel about ourselves**
+
+> Yes. It's a choice to feel hurt.
+
+That's why being data driven is critical. The sooner you gather the facts about the situation, the sooner you can realize just how bad this guy is feeling.
+
+It's not about you, unless you make it about you.
+
+> Truth Bomb: **He may very well see you as less, but that doesn't *make* you less--but if you feel less (from your own interpretation of the events) then it does make you angry**
+
+#### The Story We Tell Ourselves (or, in my words, the narratives we tell ourselves)
+
+> Literally, this is just a review of CBT--that's more of a statement to illustrate just how useful CBT really is.
+
+> In relationships, we may often shoot ourselves in the foot with a core belief: "I am not worthy of you, so you must not be faithful to me"
+
+#### Anger: The Fine Print
+
+Fear of the unknown and uncertainty is the root of much anxiety.
+
+#### The Shame Game
+
+> Human beings experience two primary emotions: love (which is soul-based) and fear (which is ego-based). All positive emotions stem from love, and all negative ones stem from fear
+
+The pain of shame is to alert us of whenever we have fallen below our potential. In accepting responsibility, we not only cancel the emotional debt, but we receive the benefit of enhanced self-esteem, and with it, **the capacity to love and be loved** (as well as so many new levels of consciousness like trust, hope, and wellbeing). 
+
+> Therein lies the origin of anger: as the ego compensates for feelings of unresolved shame, we experience a counterfeit shame: **I am less if you think I am less**.
+
+Feeling rejected in any way (embarrassed, mocked, criticized, ghosted, etc.) is not only painful, but primarily FEARFUL because **THE EGO INTERPRETS** the event as genuine shame.
+
+> The egocentric psyche translates any rejection to mean that "I am inadequate. I will not be safe and accepted because I am unworthy of love and undeserving of good".
+
+This is why YOU GET TO BE your biggest cheer leader, way before anyone enters your life. YOU GET TO BE the ultimate source of unlimited enthusiasm, motivation, and activation.
+
 
 # Part 2: The Cost of Living, The Price of Escaping
 

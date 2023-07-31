@@ -27,6 +27,12 @@ cover:
 # What Phrase(s) can I add/validate to my mantras?
 - In relationships, we may often shoot ourselves in the foot with a core belief: "I am not worthy of you, so you must not be faithful to me"
 - We don't **need** (keyword here, preferences) someone else's respect in order to have **respect for ourselves**.
+- No one ever walks away from an argument thinking: "I wish I was angrier, I would have been able to handle myself better"
+- Research indicates that self-regulation failures is central to nearly all the personal and social problems that currently plague the modern developed, world.
+- Anger is a signal indicting that your self-regulation is about to fail, unless you change now.
+- The reason why intellect plays little roll in self-awareness is because making high quality decisions is rarely about reason and logic (that's already done beforehand) but in the emotion and desire **TO EXECUTE ON THAT LOGIC**. Everyone knows what to do, few do it.
+- Money doesn't buy happiness, yet the majority of people are in living paycheck-to-paycheck trying to buy their way into happiness. What does logic have to do with it?
+- We align the entirety of our lives to accommodate our story. We become what we think about.
 
 # Introduction 
 
@@ -314,7 +320,90 @@ This is why YOU GET TO BE your biggest cheer leader, way before anyone enters yo
 
 ## Chapter 5: Why Smart People do Dumb Things
 
+### Summary
+
+#### One Sentence Summary
+
+Anger both distorts our reality and robs us IQ points. Wisdom is a function of both intellectual and emotional clarity.
+
+#### One Paragraph Summary
+
+
+Just like what Rollo May talks about, intelligence has little relation to self-awareness or emotional heath. A smart person could very well have a poor diet and a poor outlook on life. Wisdom, however, opens our eyes to see what we wish would not exist, and to accept it with grace and respond with clarity and confidence. Anger is a signal indicting that your self-regulation is about to fail, unless you change now. You will never leave an argument thinking: "I wish I was angrier, I would have been able to handle myself better"
+
+### Notes
+
+#### Vulcans need not apply
+
+We need emotions because emotions energize and motivate us to take action.
+
+Focusing on our passion for what is right, rather than on our disdain for what is wrong, will help us to see more clearly and to act more responsibly because we are not blinded by our outrage. This is not a pacifist approach but one that allows for an optimum response.
+
+> Rather than reacting, choose to respond through principles. We may respond with enthusiasm, to uplift others, or we may respond logically, to plan an event. In both cases, our responses are aligned with our principles.
+
+> No one ever walks away from an argument thinking: "I wish I was angrier, I would have been able to handle myself better"
+
+Anger both distorts our reality and robs us IQ points. Wisdom is a function of both intellectual and emotional clarity.
+
+Just like what Rollo May talks about, intelligence has little relation to self-awareness or emotional heath. A smart person could very well have a poor diet and a poor outlook on life. Wisdom, however, opens our eyes to see what we wish would not exist, and to accept it with grace and respond with clarity and confidence.
+
+#### Self-Esteem and Delaying Gratification
+
+Self-esteem stimulates the desire to invest in ourselves an provides the energy for self-discipline. This means that when our self-esteem is low, our interest and attention shift from long-term to immediate gratification (like alcohol, if it feels good, do it regardless of the consequences). We become once more like children with uncontrollable tantrums.
+
+#### Angry people behave poorly
+
+> Research indicates that self-regulation failures is central to nearly all the personal and social problems that currently plague the modern developed, world.
+
+Anger is a signal indicting that your self-regulation is about to fail, unless you change now.
+
+
 ## Chapter 6: A Fight to the Death
+
+### Summary
+
+#### One Sentence Summary
+
+We become what we think about.
+
+### One Paragraph Summary
+
+The reason why intellect plays little roll in self-awareness is because making high quality decisions is rarely about reason and logic (that's already done beforehand) but in the emotion and desire **TO EXECUTE ON THAT LOGIC**. Everyone knows what to do, few do it.
+
+Humility is the key to seeking higher levels of truth, but most people's loss aversion and egos cannot handle being wrong, especially when being wrong will cost them much external loss. That's why some smart people may have the misguided core belief that being right becomes more of an emotional priority than doing what is right, but this only feeds the narrative of self-imposed victim hood, where we perpetuate our own misery.  **The world is as we predict it to be.**
+
+### Notes
+
+> The reason why intellect plays little roll in self-awareness is because making high quality decisions is rarely about reason and logic (that's already done beforehand) but in the emotion and desire **TO EXECUTE ON THAT LOGIC**. Everyone knows what to do, few do it.
+
+Money doesn't buy happiness, yet the majority of people are in living paycheck-to-paycheck trying to buy their way into happiness. What does logic have to do with it?
+
+> Growth is internalized when we tell ourselves, "I was wrong, and now I will do what is right"
+
+Those whose egos regin lack self-esteem and can't afford to question their own judgement, worth, or intelligence.
+
+#### Two wrongs don't make a right
+
+Humility is the key to seeking higher levels of truth, but most people's loss aversion and egos cannot handle being wrong, especially when being wrong will cost them much external loss.
+
+Why do rational people sometimes make irrational decisions? Our commitment to stubborn persistence tends to become stronger once we've invested time and energy into an endeavor--classic grit vs quit and sunk-cost fallacy.
+
+#### Right to the End
+
+Some smart people may have the misguided core belief that being right becomes more of an emotional priority than doing what is right, but this only feeds the narrative of self-imposed victim hood, where we perpetuate our own misery.
+
+> We align the entirety of our lives to accommodate our story. **We become what we think about**.
+
+We can illustrate this in 5 simple sentences:
+1. Jane grew up thinking she was "bad" and undeserving of kindness and respect.
+2. **Predictably**, Jane marries Bob who "knew" he was unlovable and felt consumed by self-hatred.
+3. Bob protected himself by acting cruelly towards others before they could act cruelly to him first.
+4. Bob wasn't surprised by Jane's increasing withdraw and remoteness from him, because he "knew" no one could ever love him.
+5. They endured 20 years of torture together, proving how right they were about themselves and life
+
+> **The world is as we predict it to be.**
+
+We feel secure because our inaccurate beliefs have been validated with false data. We will be right, even if it kills us.
 
 ## Chapter 7: Reality Isn't Going Anywhere
 

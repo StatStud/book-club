@@ -33,6 +33,10 @@ cover:
 - The reason why intellect plays little roll in self-awareness is because making high quality decisions is rarely about reason and logic (that's already done beforehand) but in the emotion and desire **TO EXECUTE ON THAT LOGIC**. Everyone knows what to do, few do it.
 - Money doesn't buy happiness, yet the majority of people are in living paycheck-to-paycheck trying to buy their way into happiness. What does logic have to do with it?
 - We align the entirety of our lives to accommodate our story. We become what we think about.
+- Living a life with meaning not only brings pleasure and bolsters our emotional, spiritual, and physical health, bit it also results in **less suffering**.
+- The cure to anger is perspective
+- Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances.
+- Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
 
 # Introduction 
 
@@ -407,11 +411,125 @@ We feel secure because our inaccurate beliefs have been validated with false dat
 
 ## Chapter 7: Reality Isn't Going Anywhere
 
+### Summary
+
+#### One Sentence Summary
+
+The price of an adventure of your lifetime is comfort.
+
+#### One Paragraph Summary
+
+Meaning is not found in chasing comfort; it is found in actively struggling in a chosen burden of your choice. 
+
+### Notes
+
+> All roads out of reality lead to the Land of Suffering
+
+Avoidance is **not** coping. It's crashing in slow motion. Escapism is cheap in our modern world but costs us our life at the end of the day.
+
+> The uncomfortable noise of self-reflection muted, and the volume of illusion turned up.
+
+We reward ourselves for losing focus and for the constant seek of external stimuli. These are what contribute to our impaired emotional processing, lack of concentration, and high anxiety (remember if consumption > creation, then we get anxiety).
+
+#### Meaning = Pleasure
+
+Let's be clear about ONE thing: Comfort is not the path to happiness.
+
+> If we seek to avoid the pain, though, we are in essence avoiding life, rather than minimizing pain and maximizing pleasure, we will maximize suffering and live exceedingly unfulfilled lives. 
+
+The more engaged we are in life and in pursuit of meaningful goals, the greater our pleasure and ultimate sense of satisfaction.
+
+#### Chasing comfort = pain
+
+What's worse than being forced to work is being forced NOT to work; people without work are more likely to suffer psychological trouble and stress-related illnesses.
+
+A person can literally be bored to death.
+
+A person who doesn't grow and move forward in life will force a rift between the body and the soul--this is what death feels like.
+
+Our soul is designed to revolt against negligence and indifference, and the system will faithfully keep dishing out new symptoms (emotional and physical) to remind us that we exist in this world for a reason.
+
+#### No Escape from Reality
+
+Similar to what Rollo May writes about, choosing to live life means choosing to voluntarily pick up responsibility.
+
+> To be or not to be. That is the questions.
+
+Hamlet describes so eloquently the choice between enduring the trials of life, or to end it with spiritual suicide through escapism.
+
+Paradoxically, the more neurotic a person is, the more he believes in his ability to see, know, and predict the world around him. **BUT IN TRUTH**, he is less able to recognize cause-and-effect relationships. Superstition is nothing but a diluted form of paranoia; the desire to make connections where none exist.
+
+> Another common method of escapism is creating obstacles in one's life. We might unconsciously create obstacles to give ourselves the illusion of forward momentum. We manufacture a challenge in a controlled environment that, once overcome, gives us a sense of excitement and accomplishment. It is a feasible attempt to feel the rush of life without making the effort of living. In some instances, we devise these challenges because, unconsciously, we *want* to inconvenience ourselves; feelings of guilt and shame causes us to inflict harm on ourselves--the very epitome of self-sabotage
+
+Note: I may not fully agree with Lieberman's view here; sometimes I simply enjoy collecting data to validate the claim that I can work well under chaos. 
+
+#### The Adrenaline Junkie Connection
+
+Lieberman claims that people risk death to feel a jolt so that they can feel alive. Perhaps, but let's keep in mind that statement that Jordan Peterson once said, "You must be willing to lose your life to find it".
+
+> "If you plan on being anything less than what you are capable of being, you will probably be unhappy and angry all of the days of your life" -- Maslow
+
+
+Note: Again, like Lieberman's last statement, I don't fully agree with this one. I think some people are born with specific brain wirings that, when looked at from a macro level, help push humanity forward.
+
+
 ## Chapter 8: The Meaning of Pleasure, the Pleasure of Meaning
+
+### Summary
+
+#### One Sentence Summary
+
+Pain is **NOT** the same thing as suffering. Suffering is the emotional consequence of our choices. Pain is inevitable, but suffering is optional.
+
+#### One Paragraph Summary
+
+Pain is **NOT** the same thing as suffering. Suffering is the emotional consequence of our choices. Pain is inevitable, but suffering is optional.
+
+### Notes
+
+> Living a life with meaning not only brings pleasure and bolsters our emotional, spiritual, and physical health, bit it also results in **less suffering**.
+
+Pain is **NOT** the same thing as suffering. Suffering is the emotional consequence of our choices. Pain is inevitable, but suffering is optional.
+
+> Everything begins to make sense when we have perspective.
+
+Doing what's good for the soul and our self-esteem, by making responsible choices that compound, loops us into the source of unlimited energy that resides in each of us.
+
+#### What doesn't break us
+
+Every great person (Martin Luther King, Moses, King Solomon, Alex Hormozi, Ray Dallio, Imad, etc), endured a life of great pain and hardship--BUT NOT SUFFERING. Despite the exterior pain, their lives became the paradigm of **meaning** and **fulfillment**.
+
+Despite the life of trials and tribulations of King David, his psalms exude joy and gratitude, because when one lives a meaningful life, pain and pleasure coexist.
+
+> Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances.
+
+#### I've got the whole world in my hands
+
+Humility does not spring from a sense of inferiority but bubbles forth from the fountain of reality. 
 
 # Part 3: Making Sense of Pain and Suffering
 
 ## Chapter 9: Here comes the Pain
+
+### Summary
+
+#### One Sentence Summary
+
+Pain is a useful indicator; the same way it prompts us to move our hand from a hot stove, it prompts us to move our life in a higher direction.
+
+#### One Paragraph Summary
+
+Pain is a useful indicator; the same way it prompts us to move our hand from a hot stove, it prompts us to move our life in a higher direction.
+
+### Notes
+
+#### The Real You
+
+> Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
+
+#### Why is this my challenge, anyway?
+
+Or in other words: why bother? This is explored in the next chapter.
 
 ## Chapter 10: Why Good Things Happen to Bad People
 

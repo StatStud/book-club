@@ -35,8 +35,10 @@ cover:
 - We align the entirety of our lives to accommodate our story. We become what we think about.
 - Living a life with meaning not only brings pleasure and bolsters our emotional, spiritual, and physical health, bit it also results in **less suffering**.
 - The cure to anger is perspective
-- Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances.
+- Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances. An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious. All he has to do is exercise self-control, and God will take care of the rest. "Seek not to control the world, for it is a fleeting thing, ever changing, and beyond thy grasp. Seek instead to control thyself, and thou shalt find true power and inner peace."
 - Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
+- A person who feels too afraid to make long-term plans and to invest in his life sends a message to his subconscious that he does not have trust. Then, imperceptibly and unintentionally, he seeks to validate his fear narrative and becomes attuned to whatever in his world offers him *proof* that he is right. Because of his ego-based decision to avoid legitimate pain, and opt out of life, his ego must now prove him right.
+- Those who lack self-control have no concept of trust
 
 # Introduction 
 
@@ -533,11 +535,82 @@ Or in other words: why bother? This is explored in the next chapter.
 
 ## Chapter 10: Why Good Things Happen to Bad People
 
+### Summary
+
+#### One Sentence Summary
+
+Your fate loads the gun, but your choices pull the trigger.
+
+#### One Paragraph Summary
+
+Your fate loads the gun, but your choices pull the trigger.
+
+### Notes
+
+Man should seek a positive outlet for his inborn drives.
+
+The challenges we face are sometimes universal (e.g. overcoming excess consumption or anger) and at times unique to us, such as dealing with a specific physical limitation or emotional sensitivity.
+
+#### A victory in Appearances Only
+
+A person who lives irresponsibly moves away from his purpose and potential and will de facto suffer a range of mental health issues that will hinder his enjoyment for what he has achieved or received.
+
+> A person living without responsibility may find success in specific areas of life, but will inevitably lack meaning and purpose. 
+
+A depressed person blessed with a long life becomes a self-imposed torture; a rich man with uncontrollable indulgences will be hallow.
+
+> Life's challenges are not equally distributed to everyone, but the power of choice is the great equalizer.
+
+
 ## Chapter 11: Staying the Same in an Insane World
+
+### Summary
+
+#### One Sentence Summary
+
+An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious; all he has to do is exercise self-control, and God will take care of the rest.
+
+### One Paragraph Summary
+
+An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious; all he has to do is exercise self-control, and God will take care of the rest.
+
+### Notes
+
+#### Enter God
+
+If we know that perspective is the solution to anger, then how do we know what is relevant?
+
+The answer is trust.
+
+We don't have to see something with out own eyes in order to accept that the outcome is for our ultimate benefit.
+
+> A person who feels too afraid to make long-term plans and to invest in his life sends a message to his subconscious that he does not have trust. Then, imperceptibly and unintentionally, he seeks to validate his fear narrative and becomes attuned to whatever in his world offers him *proof* that he is right. Because of his ego-based decision to avoid legitimate pain, and opt out of life, his ego must now prove him right.
+
+In short, actions convert faith into trust.
+
+We can't establish trust in God if we don't live our lives in a way that demonstrates our belief in God.
+
+#### Self-Control = Peace of Mind
+
+When we engage in conduct that we know to be wrong, the voice of our soul cries in shame.
+
+Just as a person braces himself physically in anticipation of being hit, so too, do we brace ourselves emotionally when we feel vulnerable. 
+
+> Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances. An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious. All he has to do is exercise self-control, and God will take care of the rest. "Seek not to control the world, for it is a fleeting thing, ever changing, and beyond thy grasp. Seek instead to control thyself, and thou shalt find true power and inner peace."
+
+> Those who lack self-control have no concept of trust
+
+How can such a person trust God when, in his world narrative and the data he as collected, "trust" is a theoretical concept.
+
+#### Trust = Acceptance = Anger Free
+
+Trust the process.
 
 # Part 4: Make Peace with The Past, For Good
 
 ## Chapter 12: Planes of Acceptance
+
+
 
 ## Chapter 13: Trauma, Tragedy, and Triggers
 

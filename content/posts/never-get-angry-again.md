@@ -39,6 +39,7 @@ cover:
 - Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
 - A person who feels too afraid to make long-term plans and to invest in his life sends a message to his subconscious that he does not have trust. Then, imperceptibly and unintentionally, he seeks to validate his fear narrative and becomes attuned to whatever in his world offers him *proof* that he is right. Because of his ego-based decision to avoid legitimate pain, and opt out of life, his ego must now prove him right.
 - Those who lack self-control have no concept of trust
+- Everything that irritates us about others can lead us to an understanding of ourselves
 
 # Introduction 
 
@@ -610,6 +611,29 @@ Trust the process.
 
 ## Chapter 12: Planes of Acceptance
 
+### Summary
+
+#### One Sentence Summary
+
+To seek truth is to risk discovering something that you don't want to hear, but you know is good
+
+#### One Paragraph Summary
+
+To seek truth is to risk discovering something that you don't want to hear, but you know is good
+
+### Notes
+
+#### Self-Acceptance
+
+Similar to what Rollo May writes. To seek truth is to risk discovering something that you don't want to hear, but you know is good.
+
+#### Acceptance is not Approval
+
+> Everything that irritates us about others can lead us to an understanding of ourselves
+
+#### Sealing the Energy Leak
+
+Perspective is important.
 
 
 ## Chapter 13: Trauma, Tragedy, and Triggers

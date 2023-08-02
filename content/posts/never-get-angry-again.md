@@ -638,6 +638,14 @@ Perspective is important.
 
 ## Chapter 13: Trauma, Tragedy, and Triggers
 
+### Summary
+
+### Notes
+
+#### The Power of Decision
+
+
+
 ## Chapter 14: It's Not Too Late to Have a Happy Childhood
 
 ## Chapter 15: My Apologies, Please

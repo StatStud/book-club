@@ -40,6 +40,9 @@ cover:
 - A person who feels too afraid to make long-term plans and to invest in his life sends a message to his subconscious that he does not have trust. Then, imperceptibly and unintentionally, he seeks to validate his fear narrative and becomes attuned to whatever in his world offers him *proof* that he is right. Because of his ego-based decision to avoid legitimate pain, and opt out of life, his ego must now prove him right.
 - Those who lack self-control have no concept of trust
 - Everything that irritates us about others can lead us to an understanding of ourselves
+- "What is within my control right now that will help me to value who I am? To remind myself that I am a person of dignity and worthy of self-respect"
+    - In other words, collect the data to validate the narrative that you are a winner
+- Fear is the precursor to anger
 
 # Introduction 
 
@@ -640,15 +643,102 @@ Perspective is important.
 
 ### Summary
 
+The quality of our lives in directly proportional to the amount of responsibility we willingly accept for what we can control.
+
 ### Notes
 
 #### The Power of Decision
 
+Some people subconsciously use the narrative "the world hurts me in ways that I cannot predict or control, but my harming myself I gain control over my own pain"
 
+Side note: I mean if we're speaking on self-imposed discipline, I don't see what's wrong with the above statement.
+
+> The quality of our lives in directly proportional to the amount of responsibility we willingly accept for what we can control.
+
+Living responsibly means that you maximize control. 
+
+Your inner narratives move from "how did I get here?" and "I can't help myself" to 
+
+> "What is within my control right now that will help me to value who I am? To remind myself that I am a person of dignity and worthy of self-respect"
+
+
+#### Rethreading the Gift of Acceptance
+
+Life moves on.
 
 ## Chapter 14: It's Not Too Late to Have a Happy Childhood
 
+### Summary
+
+Here's the main takeaway from this: your parents do their best, and you're gifted with the opportunity to live your life as you please.
+
+I personally had an amazing childhood; it is the world that has made me realize how corrupt it is.
+
+### Notes
+
+#### Double Whammy
+
+> Fear is the precursor to anger
+
+Let's be clear about one thing (this is my own opinion):
+
+> You are 100% responsible for shaping your life; the internet and books give you the tools to do so. You will die at any time, and you will be forgotten in 3 generations; do what you want with your life.
+
+The insecure parent may fall trap to any one of these habits:
+- Helicopter parenting
+- Avoids discipline for fear of losing child's love
+- Desires the child to be forever dependent on the parent, so that child can fill the emotional hollowness and sense of purpose
+
+> By honoring our parents (or at least, not hating them and acknowledging that they figured out life the same way we do), we cultivate an appreciation for, and an understanding of, how much our parents love us in spite of their limitations
+
+
+#### Reframing the past
+
+Perspective
+
+#### A return on our investment
+
+When we forgive someone who has hurt us, all of our relationships seem to benefit. Until we acknowledge the offender, they remain part of us. The more we ruminate and re-energize the wrongs, the stronger the neural pathways become. Biofeedback shows an instant increase in stress when a person has anger-producing thoughts or recalls memories of insult of resentment.
+
+#### Giving and Loving
+
+Yup.
+
+
 ## Chapter 15: My Apologies, Please
+
+### Summary
+
+There is freedom in forgiveness
+
+### Notes
+
+#### Forgiveness Begins at Home
+
+Guilt gives rise to self-destructive tendencies and makes us desire to suffer or be punished; we must be able to forgive ourselves for the damage we've done to others and to ourselves.
+
+When we show warmth and compassion to ourselves, we elicit neuroaffective responses similar to those stimulated by encouraging, supportive others; this helps us feel loved and supported, making us aware that we deserve better, and it instills in us the will to invest in our long-term care and benefit.
+
+The more you forgive yourself, the more you can forgive others.
+
+- Guilt = "I have hurt; I have done wrong"
+- Shame = "I am bad; I am less because of what I did"
+
+#### Setting things straight
+
+Here's the 6-step protocol to bring peace to yourself and your relationships
+
+1. Humility and Respect
+2. Be accountable
+3. Sincerely Apologize
+4. Be willing to accept, and even offer, consequences 
+5. Make things right
+6. A painless Game Plan
+
+#### Not Successful, No Problem
+
+If the other party does not accept your apology, that's okay, life continues.
+
 
 # Part 5: How to Love Being Alive
 

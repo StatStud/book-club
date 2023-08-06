@@ -2,7 +2,7 @@
 title: "Never Get Angry Again"
 date: 2023-07-28T20:02:29-04:00
 draft: false
-tags: []
+tags: ['emotional-intelligence']
 ShowToc: true
 cover:
     image: never-get-angry-again.png
@@ -10,21 +10,20 @@ cover:
     caption: ""
 ---
 
-# Summary
-
-## One Sentence Summary
-
-## One paragraph Summary
 
 ## What is the foundational knowledge required for me to learn this?
-
-# Reading Comprehension questions from ChatGPT
+- Emotional Intelligence
 
 # What ACTIONS/HABITS will I partake after reading this book?
+- Mantras that I have saved, that I can iteratively repeat to myself to reduce likelihood that I will get mad
 
 # What Questions do I have after reading this book?
 
 # What Phrase(s) can I add/validate to my mantras?
+- The cure to anger is perspective
+- Fear is the precursor to anger
+- Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances. An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious. All he has to do is exercise self-control, and God will take care of the rest. "Seek not to control the world, for it is a fleeting thing, ever changing, and beyond thy grasp. Seek instead to control thyself, and thou shalt find true power and inner peace."
+- Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
 - In relationships, we may often shoot ourselves in the foot with a core belief: "I am not worthy of you, so you must not be faithful to me"
 - We don't **need** (keyword here, preferences) someone else's respect in order to have **respect for ourselves**.
 - No one ever walks away from an argument thinking: "I wish I was angrier, I would have been able to handle myself better"
@@ -34,15 +33,11 @@ cover:
 - Money doesn't buy happiness, yet the majority of people are in living paycheck-to-paycheck trying to buy their way into happiness. What does logic have to do with it?
 - We align the entirety of our lives to accommodate our story. We become what we think about.
 - Living a life with meaning not only brings pleasure and bolsters our emotional, spiritual, and physical health, bit it also results in **less suffering**.
-- The cure to anger is perspective
-- Pain does not make a person unhappy; suffering does, and suffering is a consequence of our choices, not of our circumstances. An individual who controls himself recognizes that he doesn't control the world, and so he is not anxious. All he has to do is exercise self-control, and God will take care of the rest. "Seek not to control the world, for it is a fleeting thing, ever changing, and beyond thy grasp. Seek instead to control thyself, and thou shalt find true power and inner peace."
-- Suffering is the emotional consequence of ignoring reality and the opportunity for growth. Our tendency to avoid the pain inherent in taking responsibility for our lives is at the root of anger, and is central to nearly every emotional aliment. The more responsible our choices, the greater our self-esteem. Should we resist reality, our struggle will be in vain. If we fail to act responsibly, all pain swells into suffering, and all suffering gives birth to anger.
 - A person who feels too afraid to make long-term plans and to invest in his life sends a message to his subconscious that he does not have trust. Then, imperceptibly and unintentionally, he seeks to validate his fear narrative and becomes attuned to whatever in his world offers him *proof* that he is right. Because of his ego-based decision to avoid legitimate pain, and opt out of life, his ego must now prove him right.
 - Those who lack self-control have no concept of trust
 - Everything that irritates us about others can lead us to an understanding of ourselves
 - "What is within my control right now that will help me to value who I am? To remind myself that I am a person of dignity and worthy of self-respect"
     - In other words, collect the data to validate the narrative that you are a winner
-- Fear is the precursor to anger
 - Movement is useless without a plan
 
 # Introduction 

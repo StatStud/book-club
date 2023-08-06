@@ -809,6 +809,7 @@ It is in this gap between where we are and where we want to be that we find inst
 ## Chapter 18: Escaping the Trap of Procrastination
 
 ### Summary
+Be authentic, choose "done" over "perfect", then iterate.
 
 ### Notes
 
@@ -821,6 +822,18 @@ Be authentic, choose "done" over "perfect", then iterate.
 # Part 6: Reclaiming Ourselves and Redefining our Boundaries
 
 ## Chapter 19: Redrawing the Lines with Boundary Breachers
+
+### Summary
+Boundaries are important
+
+### Notes
+
+#### Good Fences make Good Neighbors
+
+#### The Shape of Things to Come
+
+#### True Peace
+
 
 ## Chapter 20: How to Talk to People Who Don't Listen
 

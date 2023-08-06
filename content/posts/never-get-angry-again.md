@@ -43,6 +43,7 @@ cover:
 - "What is within my control right now that will help me to value who I am? To remind myself that I am a person of dignity and worthy of self-respect"
     - In other words, collect the data to validate the narrative that you are a winner
 - Fear is the precursor to anger
+- Movement is useless without a plan
 
 # Introduction 
 
@@ -744,9 +745,78 @@ If the other party does not accept your apology, that's okay, life continues.
 
 ## Chapter 16: A Date with Destiny
 
+### Summary
+
+A clearly defined purpose is vital for life.
+
+### Notes
+
+> The approaching threat of death as a positive motivator has zero traction in the lives of those who have no life
+
+For many depressed people, they welcome death as their permanent escape. When death is not a deterrent, it doesn't stop their self-destructive behavior and only encourages their insolence in regard to life.
+
+#### The Key to Self-Mastery
+
+> A well-lived life gives meaning to death, and in exchange, death gives renewed meaning to life.
+
+Therefore, the constructive power of contemplating death is in force only when we appreciate life itself, 
+
+> Coupons have an expiration date to force us to act, but if we're not interested in the products, then the coupons are just as useless to us before the date as they are after the date.
+
+Having purpose in our lives gives us a broader perspective on life and on death. 
+
+According to terror management theory, we handel the fear of death in one of two ways:
+1. Mortality salience hypothesis promotes self regulation in defense of our values and beliefs
+2. Anxiety buffer hypothesis: Land of escapism where we pacify our fears by further indulging 
+
+#### The Evidence
+
+Nothing other than a **clearly defined** purpose ([an ordinary man with a definite plan](https://practicalityandsimplicity.com/posts/high-value-man/)) with meaningful growth will insulate us from the quakes of insanity that would otherwise shake our emotional foundation and force us to flee from reality
+
+
 ## Chapter 17: Becoming Extraordinary
 
+### Summary
+
+Know your "why".
+
+### Notes
+
+King Solomon tells us in Ecclesiastes that all suffering comes from trying to give permanence to the temporary.
+
+We are shaped by what we can GIVE, rather than what we can take.
+
+#### Who are you living for?
+
+Ask yourself these questions:
+1. What do I want out of life?
+2. What would I do if I could not fail?
+3. What would I do if I did not have my current problems?
+4. What would I do if no one would ever find out/if everyone did find out?
+5. What would I do if I had all the money in the world?
+
+#### Are we all on the same page?
+
+Living a life that contradicts our core values and soul-inspired passions drains us because it creates division within us.
+
+We cannot simultaneously value X as all important, then spend our time, energy, and resources on goal Y, without creating an internal tug of war.
+
+This is similar to what Earl Nightgale mentions: we need our goals to be compatible.
+
+It is in this gap between where we are and where we want to be that we find instability and the breeding ground for anger.
+
+
 ## Chapter 18: Escaping the Trap of Procrastination
+
+### Summary
+
+### Notes
+
+> Movement is useless without a plan
+
+#### The Antidote: An Authentic Self
+
+Be authentic, choose "done" over "perfect", then iterate.
 
 # Part 6: Reclaiming Ourselves and Redefining our Boundaries
 

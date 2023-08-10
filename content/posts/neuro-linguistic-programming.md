@@ -80,8 +80,36 @@ NLP thrives with two key attributes:
 Above all else, have fun! Take your work seriously, but hold good humor on yourself
 
 
-
 ## Chapter 2: Some Basic Assumptions of NLP
+
+### Summary
+
+NLP operates on the assumption that people interpret the world through their mental maps of meaning; we become what we think about.
+
+### Notes
+
+One of the NLP assumptions is "the map is not territory", meaning that the internal map we create of the external world that's shaped by our unique experiences is never an exact replica of the map made by someone else perceiving the same surroundings as you.
+
+In other words, what's outside can never be the same as what's inside your brain.
+
+The map acts as a filter through which we observe the natural world around us.
+
+The result of this personal filter is that everyone has a very individual map of the world (see point #7 on the [certainties of life](https://practicalityandsimplicity.com/posts/the-certainties-of-life/).)
+
+This means:
+
+> To communicate better, understand the mental map of the person(s) you're speaking to
+
+We respond to life in accordance with the map we develop; this map is based on our beliefs, attitudes, memories, and cultural upbringing.
+
+The right mental map can make accepting failure (and hence growth) more tolerable
+
+> No matter how honorable or well-intentioned your communication is, the success of the interaction depends on how the listener receives the message, and not what you intend
+
+This means the onus of effectively communicating is on you. If the person misunderstands, it's your fault, and this is good, because YOU have the flexibility to do things differently through your behavior and words.
+
+
+
 
 ## Chapter 3: Discovering Who’s Directing Your Life
 

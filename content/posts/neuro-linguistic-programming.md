@@ -109,9 +109,40 @@ The right mental map can make accepting failure (and hence growth) more tolerabl
 This means the onus of effectively communicating is on you. If the person misunderstands, it's your fault, and this is good, because YOU have the flexibility to do things differently through your behavior and words.
 
 
-
-
 ## Chapter 3: Discovering Who’s Directing Your Life
+
+### Summary
+You can change beliefs with repetitive affirmations, because repetition is the mother of mastery.
+### Notes
+
+This chapter focuses on the power of the unconscious mind.
+
+The key to bringing your unconscious mind into alignment with your conscious desires and goals is understanding the strengths of each part and how they work.
+
+What prevents us from fulfilling our potential are the closely held beliefs that we hold deep in our psyche.
+
+Similar to how the law of attraction works, your unconscious can't process negatives; it interprets **everything** you think as a positive thought. **This is why stating your goals in the positive is important**.
+
+In order to direct the unconscious mind, you get to open up communication channels between your conscious and unconscious minds. This rapport is developed through quiet meditation and examining the memories presented to you by your unconscious mind.
+
+Part of the function of the unconscious mind is to repress memories with unresolved negative emotions.
+
+Another function of the unconscious mind is to present repressed memories for examination in order to **release trapped emotions**.
+
+Unfortunately, the unconscious mind doesn't always pick the most appropriate time to present a memory to be examined--otherwise known as "leaking out" in unintended ways.
+
+There's a section of this book that focuses on phobias.
+
+Your values and beliefs are unconscious filters that you use to decided what bits of data coming through your senses you pay attention to and what bits of data you ignore.
+
+This means that the unconscious 9/10ths of your brain has been sitting there on the quiet, building up all sorts of beliefs and making all sorts of decisions about you and your environment, and you're not even aware of them.
+
+> Be aware of the limiting beliefs that lurk within your unconscious mind.
+
+The good news is that beliefs can and do change (change is the only constant).
+
+You can change beliefs with repetitive affirmations, because repetition is the mother of mastery.
+
 
 ## Chapter 4:  Taking Charge of Your Life
 

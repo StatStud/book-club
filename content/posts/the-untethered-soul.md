@@ -23,9 +23,13 @@ cover:
 # What ACTIONS/HABITS will I partake after reading this book?
 
 # What Questions do I have after reading this book?
+- In chapter 1, Singer suggest that we don't pay attention to our voices; but this seems to contradict the idea from CBT and basic emotional intelligence that we can change our actions by changing our interpretations of the events surrounding our actions. Is what Singer suggesting in conflict with CBT?
 
 # What Phrase(s) can I add/validate to my mantras?
 - True personal growth is about transcending the part of you that is not okay and needs protection from the reality of the world
+- Your inner growth is completely dependent upon the realization that the only way to find peace and contentment is to stop thinking about yourself
+- How are you expected to solve anything outside until you own how the situation affects you on the inside?
+- Ask yourself: Who is it that sees you get angry, insecure, envious, etc? Who notices that changes going on inside? You are the one who's there, noticing these changes. Therefore, you are not these changes. You start by just watching.
 
 # Introduction
 
@@ -124,7 +128,65 @@ And this is accomplished by reminding yourself that YOU are the one inside that 
 
 # Chapter 2: Your inner roommate
 
+## Summary
+
+Inner work is all about working on how well you interpret the events around you. Call it CBT, self-growth, whatever, it's all the same.
+
+## Notes
+
+> Your **inner growth** is completely dependent upon the realization that the only way to find peace and contentment is to **stop thinking about yourself**
+
+Wow, this is similar to what Peterson talks about. The more you think about yourself, the more miserable you become. Isn't it a paradox how "inner growth" is NOT "thinking about yourself"???
+
+> You're ready to grow when you realize that the "I" who is always talking inside will never be content. 
+
+When a problem is disturbing you, instead of asking, "What should I do about this?", ask, "what part of me is being disturbed by this?"
+
+To ask, "what should I do about this?" is to validate the narrative that there really is a problem outside that must be dealt with. But if you wish to achieve inner peace, you must instead understand why you perceive (interpret) a particular situation as a problem.
+
+Side note: This is kinda similar to CBT again; we are changing how we view the events, rather than feeling ashamed of who we are.
+
+> The solution to your every problem starts by asking, "Who notices this inner disturbance?Who is it that sees this?"
+
+Similar to what Eleanor Roosevelt says, "No one can make you feel inferior without your consent"
+
+> The very fact that you can see the inner disturbance means that YOU are not it because the process of seeing something requires a subject-object relationship.
+
+This act of maintaining objective awareness of the inner problem is always better than losing yourself in the outer situation.
+
+The difference between the worldly person and the spiritual person is not in that the worldly person has many material possessions, but rather the worldly person believes that the solution to their inner problems can be found in the outside world. Worldly people believe that if they change things on the outside (moving to a new city, trying a new wardrobe style, earning more money, etc) then they'll be okay on the inside.
+
+Like what David J. Lieberman mentions, no one believes that they can gain better clarity to their problems if they were angry, anxious, or scared; likewise Singer suggests that dealing with our initial *reactions* is the first step in dealing with our problems.
+
+> How are you expected to solve anything outside until you own how the situation affects you on the inside?
+
+You get to break the habit of thinking that the solution to your problems is to rearrange things outside.
+
+The only permanent solution to your problems is to go inside and let go of the part of you that seems to have so many problems with reality; once you take care of that, you'll be clear enough to deal with what's left.
+
+> Ask yourself: Who is it that sees you get angry, insecure, envious, etc? Who notices that changes going on inside? You are the one who's there, noticing these changes. Therefore, you are not these changes. You start by just watching.
+
+Side note: I guess this is the part that clarifies the "other-self" from Napoleon Hill and what Singer is suggesting. Essentially, they're both talking about pretty similar things, but Hill suggest the the "other self" is the negative part of the talking mind while the "self" is the mission-oriented, positive side; per contra, Singer suggests that it's ALL the talking parts that are the "other self", while the "self" is us as individuals noticing and becoming aware of this chatter (both the good and the bad.)
+
+The path to free yourself from negative talk is to simply watch it happen; then, give it a name, body, and personality--it is now someone that's not you. Then, allow it to be your friend. This is what we call inner work: changing the habitual negative thoughts into positive ones.
+
+
 # Chapter 3: Who are you?
+
+Given the subject-object relation, and knowing that we cannot be that which we observe, then that begs the fundamental question:
+
+> Who am I?
+
+Ask yourself these questions:
+- Who sees what I see?
+- Who hears what I hear?
+- Who knows that I am aware> 
+- Who feels fear?
+
+You realize that the outside world and the flow of inner emotions come and go. But you, the one who observes these things, remain continuously aware of whatever passes before you.
+
+So, who are you?
+
 
 # Chapter 4: The lucid self
 

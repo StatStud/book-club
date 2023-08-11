@@ -146,6 +146,40 @@ You can change beliefs with repetitive affirmations, because repetition is the m
 
 ## Chapter 4:  Taking Charge of Your Life
 
+Rather than playing the blaming game, ask yourself, "what's the lesson that I need to learn so that this problem is no longer an issue?"; this is called the "outcome" frame, and it's the most constructive framework within NLP from which we may find the right solution.
+
+NLP builds on SMART goals by making you use all your senses to design a goal, and to fine tune it to be more than just the markers of smart. 
+
+So, in addition to the SMART criteria:
+1. Specific
+2. Measurable
+3. Attainable
+4. Realistic
+5. Time-bound
+
+NLP includes additional questions to answer:
+1. Is the goal stated in the positive?
+2. Is the goal self-initiated, maintained, and under my voluntary control?
+    - You cannot wish for someone else to change, nor can you change for someone else
+    - To what extend does the outcome rely on just YOU?
+3. Does the goal describe the evidence procedure?
+    - When do you know you've achieved the goal?
+    - How do you know you're getting the desired outcome?
+    - What will you be doing when you get it?
+    - What will you see, hear, taste, smell, and feel when you have it?
+4. Is the context of the goal clearly defined (the "why?")?
+5. Does the goal Identify the necessary resources?
+6. Have I evaluated whether the goal is ecological?
+    - In your own ecological context, does the goal fit your style and who you are?
+    - What will you gain or lose if you win?
+    - What will happen if you get it?
+    - What will NOT happen if you get it?
+    - What will happen if you DO NOT get it?
+    - what will NOT happen if you DO NOT get it?
+7. Does the goal identify the first step I need to take?
+    - The journey of a thousand steps begins with one step
+
+
 # Part 2: Winning Friends and Influencing People
 
 ## Chapter 5: Pushing the Communication Buttons

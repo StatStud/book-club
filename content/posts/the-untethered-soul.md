@@ -190,6 +190,36 @@ So, who are you?
 
 # Chapter 4: The lucid self
 
+## Summary
+
+According to Singer, Consciousness is our ability to become aware of the Self; the self is the entity that is aware and notices the objects around it--be it physical objects that involve our five senses, or inanimate thoughts that involve our emotions, intellect, and reason.
+
+## Notes
+
+Just like in lucid dreaming, lucid awareness is the difference between being aware that you are aware in your daily life, and not being aware while going through the motions.
+
+When you are lucid, you remain inwardly aware that you are the one who is experiencing both the events and the corresponding thoughts and emotions. 
+
+When a thought is created in this state of awareness, instead of getting lost in it, you remain aware that you are the one who is thinking the thought--you are lucid.
+
+The best way to learn about consciousness is through your own direct experience.
+
+The essence of consciousness is awareness, and awareness has the ability to become more aware of one thing and less aware of something else--this is the ability to focus.
+
+The key is that consciousness has the ability to concentrate on different things. In terms of subject-object relation, the subject (consciousness) has the ability to selectively focus awareness on specific objects. If your consciousness concentrates enough on the object itself, your sense of awareness loses itself in the object; it is no longer aware that it is aware of the object; it just becomes object-conscious (this is what it means to lose oneself in his work).
+
+Total consciousness goes beyond the 5 senses; they include the thoughts and emotions as well.
+
+According to Singer, the "lost soul" is the consciousness that has dropped into the place where one human's thoughts, emotions, and sensory perceptions of sight, sound, taste, touch, and smell, are all synchronized.
+
+What differentiates a conscious, centered human from a person who is not so conscious is simply the **focus** of their awareness; it's not a difference in the consciousness itself, because all consciousness is the same, the same way all light from the sun is the same, but may shine on different parts of the environment.  
+
+Consciousness is neither pure nor impure; it has no qualities. It's just there, aware that it's aware. The difference is that when your consciousness is not centered within, it becomes totally focused on the objects of consciousness. When you are a centered being, however, your consciousness is always aware of being conscious. Your awareness of being is independent of the inner and outer objects you happen to be aware of.
+
+If you really want to understand this difference, you must begin by realizing that consciousness can focus on anything, including itself--and this is what true meditation accomplishes. In deep meditation, the focus of consciousness is turned back to the Self; it is the return to the root of your being, the simple awareness of being aware. You are now aware of who you are. You have become an awakened being. You woke up. That is the nature of Self, who you are.
+
+The more you are willing to just let the world be something you're aware of, the more it will let you be who you are--the awareness, the Self, the Atman, the Soul.
+
 # Chapter 5: Infinite Energy
 
 # Chapter 6: The secretes of the spiritual heart

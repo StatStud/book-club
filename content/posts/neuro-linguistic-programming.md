@@ -2,7 +2,7 @@
 title: "Neuro-Linguistic Programming"
 date: 2023-08-09T22:31:18-04:00
 draft: false
-tags: []
+tags: ['psychology']
 ShowToc: true
 cover:
     image: nlp.png
@@ -14,11 +14,12 @@ cover:
 
 ## One Sentence Summary
 
+NLP is a broad basket of general mental well being, but will unnecessary extra steps that would easily be obtained from real-life experience. CBT goes further in depth on how to actually change your beliefs to change your actions, and is practical.
+
 ## One paragraph Summary
 
 ## What is the foundational knowledge required for me to learn this?
-
-# Reading Comprehension questions from ChatGPT
+- None! Lol, or at least a basic understanding in how our beliefs influence our actions
 
 # What ACTIONS/HABITS will I partake after reading this book?
 
@@ -146,6 +147,12 @@ You can change beliefs with repetitive affirmations, because repetition is the m
 
 ## Chapter 4:  Taking Charge of Your Life
 
+### Summary
+
+This chapter talks about setting goals with an enhanced version of SMART goals.
+
+### Notes
+
 Rather than playing the blaming game, ask yourself, "what's the lesson that I need to learn so that this problem is no longer an issue?"; this is called the "outcome" frame, and it's the most constructive framework within NLP from which we may find the right solution.
 
 NLP builds on SMART goals by making you use all your senses to design a goal, and to fine tune it to be more than just the markers of smart. 
@@ -184,11 +191,54 @@ NLP includes additional questions to answer:
 
 ## Chapter 5: Pushing the Communication Buttons
 
+### Summary
+
+Your values set the standard for your actions, while your beliefs set the stage from which you act upon those values. Your attitude balances out differences between your values and beliefs. A most of good communication involves keeping cool and being aware of your internal state.
+
+### Notes
+
+> NLP tells us that we, as individuals, are responsible for 100% of the communication of a conversation 
+
+The specific key term for communication using NLP is called the "NLP Communication Model". But really, it's no different than recognizing your internal state (what emotions you're feeling during conversation, or right before) and your internal processes (your self-talk, images, etc.). 
+
+Master communicators have four things in common:
+1. They know what they WANT
+2. They're very good at noticing the subtle responses they get (especially non-verbal)
+3. They have flexibility to modify their behavior and "play the game" until they get what they want
+4. They keep their cool
+
+> People can change their behavior patterns depending on the environment and context in which they find themselves (e.g. everyone is alpha, until they need a root canal done)
+
+Values vs beliefs vs attitudes? What's the difference (according to NLP)?
+1. Values
+    - These are what motivate you or stop you from taking action towards your desires
+2. Beliefs
+    - These are the habitual narratives we tell ourselves about how ourselves, other people, and the world around us
+3. Attitudes
+    - Your emotional state of mind towards a given subject
+    - Based on your values and beliefs
+
+For example, you value honesty and seek to always tell the truth (value), yet your narrative about other people may be that they are dishonest most of the time (belief), which leads you to hold a negative attitude toward other people for not living up to your honest standard (attitude), or perhaps one of indifference (people are people).
+
+Your values may be in conflict with the narrative (belief) you hold about yourself, other people, and the world around you; attitude is the seed through which you reconcile these differences.
+
 ## Chapter 6: Seeing, Hearing, and Feeling Your Way to Better Communication
+
+### Summary
+This chapter is all about Visual, Auditory, and Kinesthetic preferences of people.
+### Notes
+
+This chapter is all about Visual, Auditory, and Kinesthetic preferences of people.
 
 ## Chapter 7: Creating Rapport
 
+### Summary
+
+This chapter has broad content that can easily be replaced with books like, "How to win friends and influence people", "Verbal Judo", "How to talk to anyone"--just to name a few.
+
 ## Chapter 8: Understanding to Be Understood: Meta Programs
+
+AT THIS POINT, I stopped reading the book, because after skimming the remain pages, I realized that (1) NLP is too broad and abstract for practical use (2) There are books that are more concise with practical tips.
 
 # Part 3: Opening the Toolkit
 

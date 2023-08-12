@@ -242,7 +242,13 @@ Singer suggests to learn to stay open no matter what happens. If you do, you get
 
 Side note: to the point that Singer suggested above, I think this would be the same energy that my brother Max has. In his case, he is highly successful, while being highly energetic and enthusiastic. Hell, in that case, I think that's a habit worth developing! Naturally, the question of masculinity comes into play, in which case I defer to the [qualities of a masculine man](https://practicalityandsimplicity.com/posts/high-value-man/). Remember that we become a man the moment we take responsibility for caring for another person.
 
+If you really want to stay open, pay attention when you feel love and enthusiasm. Then, ask yourself why you can't feel this all the time. Why does it have to go away? The answer is obvious: it only goes away if you choose to close.
 
+You feel love until somebody says something you don't like, and then you give up the love. It's your choice. 
+
+Through meditation, awareness, and willful effort, you can learn to keep your centers open. You do this by just relaxing and releasing. 
+
+If you love life, you don't buy into the concept that there is anything worth closing over; nothing every, is worth closing your heart over.
 
 # Chapter 6: The secretes of the spiritual heart
 

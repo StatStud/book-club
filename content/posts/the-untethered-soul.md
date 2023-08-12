@@ -222,6 +222,28 @@ The more you are willing to just let the world be something you're aware of, the
 
 # Chapter 5: Infinite Energy
 
+Inner energy is that sudden spark of instant energy we get when, after months of being depressed, our ex reaches out to us and wants us back, and we instantly become overjoyed. That's the kind of inner energy that Singer is talking about.
+
+This energy is always available to you. At any moment you can draw upon it. It wells up and fills you from the inside, until it overfills to those around you. When you're filled with this kind of energy, you feel like you can take on the world. When it's flowing strongly, you can actually feel it coursing through your veins. 
+
+The only reason why you don't feel this energy all the time is because you block it; you block it by closing your heart, mind, and by pulling yourself into a restrictive space inside, which closes you off from all energy.
+
+When you close your heart or close you mind, you hide in the darkness within you. There is no light. There is no energy. There is nothing flowing. The energy is still there, but it's blocked from usage.
+
+These energy centers are what the yogis call chakras, and the heart is one of the main chakras. But you can call it whatever you want, because different cultures will call it different things ("chi", "spirit, etc.). All great traditions talk about spiritual energy. 
+
+To access this internal energy source, you must simply be open and receptive in your heart; under your control, you can cultivate the habit of being open to people.
+
+Under normal circumstances, our state of openness is left to psychological factors based from our past experience. Unique impressions from past experiences can become activated by certain environmental stimuli.
+
+Side note: Singer suggests that we practice the habit of always being open and receptive. But how does this match with the ugly reality of the real world, and the art of saying less than necessary from books like "48 laws of power"? I think it's a trade off: you can feel enthusiasm, joy, and love at all times regardless of what happens in the external world; or, you can swing in between highs and lows while having a more strategic approach to the outside world.
+
+Singer suggests to learn to stay open no matter what happens. If you do, you get for free what everyone else is struggling for: love, enthusiasm, excitement, and energy.
+
+Side note: to the point that Singer suggested above, I think this would be the same energy that my brother Max has. In his case, he is highly successful, while being highly energetic and enthusiastic. Hell, in that case, I think that's a habit worth developing! Naturally, the question of masculinity comes into play, in which case I defer to the [qualities of a masculine man](https://practicalityandsimplicity.com/posts/high-value-man/). Remember that we become a man the moment we take responsibility for caring for another person.
+
+
+
 # Chapter 6: The secretes of the spiritual heart
 
 # Chapter 7: Transcending the tendency to close

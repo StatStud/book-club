@@ -222,6 +222,12 @@ The more you are willing to just let the world be something you're aware of, the
 
 # Chapter 5: Infinite Energy
 
+## Summary
+
+The key to accessing the unlimited, internal energy reservoir is by living a life that's authentic and open. This means cultivating the habit of remaining open in spite of how the world responds. The reward is the ever elusive love, enthusiasm, excitement, and energy that every seeks but fails to attain.
+
+## Notes
+
 Inner energy is that sudden spark of instant energy we get when, after months of being depressed, our ex reaches out to us and wants us back, and we instantly become overjoyed. That's the kind of inner energy that Singer is talking about.
 
 This energy is always available to you. At any moment you can draw upon it. It wells up and fills you from the inside, until it overfills to those around you. When you're filled with this kind of energy, you feel like you can take on the world. When it's flowing strongly, you can actually feel it coursing through your veins. 

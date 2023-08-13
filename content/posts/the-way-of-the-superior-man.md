@@ -171,6 +171,34 @@ Side note: how is living with an open heart different from allowing other people
 
 ## Chapter 42: Never allow your desire to become suppressed or depolarized
 
+### Summary
+
+If you choose to be the problem, then you choose to be the solution that can help resolve the issue, be it with your woman or your work. You always have a choice. **YOU** always have a **CHOICE**.
+
+### Notes
+
+> When a man *denies* his desire for the feminine, it is a sign of his depolarization even toward the world. A man has no excuse; he must cultivate a polarized relationship to his woman and his world if he is to remain in relationship with them.
+
+YOU HAVE A CHOICE.
+
+**You** could **CHOOSE** to give your gift as a renunciate celibate, living with only the most minimal engagement with the world and women, or **you** could **CHOOSE** to engage the world and women fully, as a way of *giving your gift*.
+
+If **YOU CHOOSE** to engage the world and women fully, then you must maintain a certain degree of polarization or mutual attraction with them. Otherwise, you will begin to reject, resist, and resent the world and women around you--ultimately undermining your capacity to give your gift.
+
+> It's YOUR CHOICE.
+
+The mediocre man will leave his woman the moment things become stale--finding excitement in novelty. The mediocre man holds the same view with his career, work, and purpose.
+
+Yet, it's not time that kills the delight in a relationship, but rather familiarity, neutralization, and lack of purpose. It's not your woman that's worn-out, but your lack of desire that has faded. You have become so familiar with your woman that she has "rubbed-off" on you; **familiarity breeds contempt**.
+
+A superior man always assumes complete responsibility, knowing that, ultimately, he has no control at all and everything is out of his hands. He acts with impeccable courage and persistence, expecting nothing but the inherent feeling of completeness he enjoys in the fullest giving of his gift.
+
+> When your woman is looking withdrawn or ugly, assume she is a goddess and needs your divine invasion of her heart and body.
+
+Sometimes you must move on, to another job or another woman. That's fine, if it is a true movement of growth: clear, empowering, and an aspect of the ongoing giving of your love. But be aware, as your first impulse to move comes when you have ceased invading the moment with your fullest capacity to give and instead are droning along, coping rather than creating.
+
+Rather than deciding to move on because you are too weak to overcome your own neutralized lack of desire, try to take on the challenge of manifesting love in the dreary world and in your dreary woman. 
+
 ## Chapter 43: Use her attractiveness as a slingshot through appearance 
 
 # Part 7: Body Practices 

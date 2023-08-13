@@ -25,14 +25,61 @@ cover:
 # What Questions do I have after reading this book?
 
 # What Phrase(s) can I add/validate to my mantras?
+- Men who have lived significant lives are men who never waited: not for money, security, ease, or women
+- The world and your woman will always present you with unforeseen challenges; you are either living fully, giving your gift in the midst of those challenges, even today, or you are waiting for an imaginary future which will never come
+- **It never ends**. As long as life continues, the creative challenge is to tussle, play, and make love with the present moment while giving your unique gift
+- To be a man is to **learn** to stay in the wound of pain and act with spontaneous skill and love even from that place
 
 # Part 1: A man's way
 
 ## Chapter 1: Stop Hoping for a completion of anything in life
 
+### Summary
+
+Men who have lived significant lives are men who never waited: not for money, security, ease, or women.
+
+### Notes
+
+> The masculine error is to think that *eventually* things will be different in some fundamental way. They won't. **It never ends**. As long as life continues, the creative challenge is to tussle, play, and make love with the present moment while giving your unique gift.
+
+It's never going to be over, so stop waiting for the good stuff. As of right **now**, spend a minimum of one hour per day doing whatever you ware waiting to do until your finances are more secure, or until the children have grown and left the house, or until you have finished your obligations and you feel free to do what you really want to do.**Don't wait any longer**.
+
+> Do what you love to do, what you are waiting to do, what you've been born to do, now.
+
+Spend at least one hour a day doing whatever you simply love to do, whatever you deeply feel you need to do, in your heart--in spite of the daily duties that seem to constrain you.
+
+However, be forewarned: you may discover that you don't, nor can't, do it--that what you *imagine* would happen is just that: a fantasy. Proceed with humility.
+
+> Limited money and family obligations have never stopped a man who really wanted to do something, but they do provide an excuse for a man who is not really up for the creative challenge in the first place.
+
+Find out today whether you are willing to do what it takes to give your gift fully.
+
+The same applies with your woman. Make no effort to bring an end to that which pisses you off. Practice love instead of trying to bring an end to the quality that bothers you. You can't escape the tussle with the feminine. Learn to find humor in the unending emotional drama that the feminine seems to enjoy. 
+
+> The world and your woman will always present you with unforeseen challenges; you are either living fully, giving your gift in the midst of those challenges, even today, or you are waiting for an imaginary future which will never come.
+
+> Men who have lived significant lives are men who never waited: not for money, security, ease, or women. 
+
 ## Chapter 2: Live with an open Heart, even if it hurts
 
+### Summary
+
+True strength comes from living an open and authentic life while resisting the urge to retreat back into the womb of warmth and safety. To be a man is to **learn** to stay in the wound of pain and act with spontaneous skill and love even from that place
+
+### Notes
+
+> If necessary, a man should live with a hurting heart rather than a closed one. He should **learn** to stay in the wound of pain and act with spontaneous skill and love even from that place.
+
 Shit, this is exactly what Singer mentions in chapter 5 of his book, "The Untethered Soul".
+
+Any attempt to hide, flee, or retreat back into the womb are signs of **unskillful reaction to hurt**. Trapped by the womb, you are no longer a free man.
+
+The superior man practices opening during these times of **automatic** closure. Look directly into the eyes of whoever you are with, feeling your own pain as well as feeling the other person. Don't struggle, and don't settle--stay relaxed right in between. 
+
+To act as a superior man, a samurai of relationship, you must feel the entire situation with your whole body. A closed body is unable to sense subtle cues and signals, and therefore unable to act with mastery in the situation.
+
+
+Side note: how is living with an open heart different from allowing other people to disrespect you? Maybe because no one can offend you without your concent. Living with an open heart doesn't mean you have to accept disrespect. You can still approach life with empathy and compassion while setting firm boundaries that protect your self-worth. Allowing disrespect isn't a reflection of an open heart. Allowing others to disrespect you can stem from a lack of self-love and self-worth. You can be both companionate and empathetic while having clear boundaries.
 
 ## Chapter 3: Live as if your father were dead
 

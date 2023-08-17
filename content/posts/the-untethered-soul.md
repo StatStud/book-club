@@ -258,6 +258,84 @@ If you love life, you don't buy into the concept that there is anything worth cl
 
 # Chapter 6: The secretes of the spiritual heart
 
+## Summary
+
+Compartmentalization comes at a price of having a blocked heart. The energy flow is real, and unless it's released, it will leak out in unintended and unhealthy ways. The way to be free is to let it go, feel the blockage painfully come out of you, as you setback and relax into the release.
+
+## Notes
+
+Your heart is an instrument made of extremely subtle energy that few people come to appreciate. 
+
+Our ability to give and receive love depends on whether our hearts are open or closed. All these different emotions happen because the heart goes through changes. 
+
+In truth, you are not your heart, the same way you are not your emotions, but you are the experiencer of your heart.
+
+The energy flow we experience during moments of inspiration, enthusiasm, and strength come from the knowing that we are loved--a sense of confidence. This energy flow goes by many names, some of which include Chi, Shakti, and spirit.
+
+The heart controls the energy flow by opening and closing. 
+
+The heart closes when it becomes blocked by stored, unfinished energy patterns from the past.
+
+Our five senses are not windows nor ports through which we experience the world; they are sensory processes that act as electronic sensing devices. 
+
+If the energy patterns that are coming into your psyche create disturbances, you will resist them and create blockage within you.
+
+Ideally, these energy patterns should be gone as soon as you perceive them, like perceiving trees passing by you as you drive your car. When you have no personal issues with these patterns, then these impressions are processed freely. While this system working, you're fine. Driving is an experience, trees passing by are an experience, and cars passing by are an experience. These experiences are gifts that are being given to you, like a great movie.
+
+This is what it means to be alive.
+
+What it means to live life is to experience the moment that is passing through you, and then experience the next moment, and the moment after that. 
+
+It's a phenomenal system when it is working properly. That is how an awakened being lives in the "now". They are present, life is present, and the wholeness of life is passing through them.
+
+However, this system doesn't work when we misuse it by judging and labeling the experiences. Using the car example again, you may see a car that looks like your ex's, and now, a simple car that's driving by has creating narratives in your head that don't allow you to let the experience pass through. 
+
+At the physical level, nothing different is going on. It's just a car that happens to be the same color as your ex's. But at the mental level, the impression did not make it through.
+
+> When the next moment comes, you no longer notice the rest of the trees. You're not seeing the rest of the cars. Your heart and mind are fixated on that one car, even though it's gone.
+
+This is what we call the blockage. All subsequent experiences are trying to pass through you, but something has happened inside that has left this past experience unfinished.
+
+What happens to that experience (the ex, the trauma, the gift, etc) that didn't make it through?
+
+At some point it will disappear from the spotlight as you focus on something else. But what you don't realize is that your entire experience of life is about to change because of what didn't make it through you. Life must now compete with this blockage for your attention, and the impression does not just sit there quietly.
+
+You will find that your thinking tendency will gravitate towards that blockage--constantly. This is an attempt to find a way to process it through your mind. All that inner noise is just your attempt to process the blocked energy and get it out of the way.
+
+Long term, the energy patterns that cannot make it through you are pushed out of the forefront of the mind and held until you are prepared to release them.
+
+Side note: I wonder if this is what Napolean Hill refers to as the dominant thoughts that carry a lot of emotion becomes what we realize in reality.
+
+These energy patterns, which hold tremendous detail about the events associated with them, are real. They don't just disappear. They stay inside you and become a problem because they may be held for very long time and leak into reality in unintended and unhealthy ways.
+
+As you willfully struggle to keep these events from passing through your conscious, the energy first tries to release by manifesting through mind. This is why the mind becomes so active. 
+
+When the energy can't make it through the mind because of conflicts with other thoughts and mental models/concepts, it then tries to release through the heart. That is what creates all the emotional activity. 
+
+When you resist even that release, the energy gets packed up and forced into deep storage within the heart. In the yogic tradition, that unfinished energy pattern is called *Samskara*. A Samskara is nothing more than a blockage/impression form the past.
+
+> A Samskara is nothing more than a blockage/impression form the past.
+
+> From a personal experience, a more familiar language is "compartmentalizing". Eventually, as you fill up your emotional box with these experiences, and then leave it on the shelf to never take it out, it will inevitably overfill and spill when you're least ready and least expecting.
+
+Now, this brings us the the next important question: given that our heart can open and close from our experiences, what causes these frequent changes in the state of the heart?
+
+This happens when a Samskara is stimulated. Maybe some proxy event that triggers unresolved emotions to spring forth. The Samskara opens like a flower and begins to release the stored energy. Suddenly, the flash of what you experienced when the original event took place rush into your consciousness. In an instant, you begin experiencing feelings you left in the past. 
+
+So what's the cure? How do we unblock?
+
+Just let it go.
+
+> When an event triggers a Samskara, simply smile; be happy that this Samskara, which has been stored down there for all this time, has the opportunity to make it through you. Be open, relax your heart, forgive, laugh, or do anything you want--just don't suppress.
+
+Of course it hurts when it comes up; it's stored pain. It's going to release with pain. That's the pain that we "put in the box", and are now paying the debt with.
+
+You have a choice: do you want to try to change the world so it doesn't disturb your Samskara, or are you willing to go through this process of purification?
+
+
+
+
+
 # Chapter 7: Transcending the tendency to close
 
 # chapter 8: Let go now or fall

@@ -401,7 +401,7 @@ Some smart people may have the misguided core belief that being right becomes mo
 > We align the entirety of our lives to accommodate our story. **We become what we think about**.
 
 We can illustrate this in 5 simple sentences:
-1. Jane grew up thinking she was "bad" and undeserving of kindness and respect.
+1. Jane grew up **thinking** she was "bad" and undeserving of kindness and respect.
 2. **Predictably**, Jane marries Bob who "knew" he was unlovable and felt consumed by self-hatred.
 3. Bob protected himself by acting cruelly towards others before they could act cruelly to him first.
 4. Bob wasn't surprised by Jane's increasing withdraw and remoteness from him, because he "knew" no one could ever love him.

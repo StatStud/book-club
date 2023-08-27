@@ -26,6 +26,12 @@ cover:
 
 # What Phrase(s) can I add/validate to my mantras?
 - Man is a thinking reed but his great works are done when he is not calculating and thinking.
+- It is the initial act of judgement which provokes a thinking process. To stop thinking, stop judging.
+- Repeated over time, these self-judgments lead to self-fulfilling prophecies, because they are communicated from "I" instructor to "myself" doer. We become what we think about.
+- But let's be clear about something: letting go of judgments **does not** mean ignoring errors. Rather, it means seeing events as they are and not adding anything to them.
+- "I had learned and he had learned, but there was no one to take credit"
+- "Compliments are criticisms in disguise! Both are used to manipulate behavior, and compliments are just more socially acceptable!"
+- To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
 
 # Introduction
 
@@ -112,6 +118,10 @@ These three skills combined overcome "trying too hard" and lead to mastery.
 
 ## Summary
 
+The first inner skill to be developed in the inner game is that of nonjudgmental awareness. 
+
+To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
+
 ## Notes
 
 Harmony between the two selves exists when the mind itself is quiet, for only when the mind is still is one's peak performance reached.
@@ -126,9 +136,39 @@ So, how do you quiet the mind? Stop it! That's it!
 
 Of course, you cannot prevent a bird from flying over you, yet you can prevent it from building a nest. Likewise, just stop thinking; if a thought comes through, let it pass.
 
+What do we mean by judging an event? We mean assigning a label to indicate something being bad or good. These judgements are our personal, ego reactions to the sights, sounds, feelings, and thoughts surrounding our experience.
 
+> It is the initial act of judgement which provokes a thinking process. To stop thinking, stop judging.
+
+> Repeated over time, these self-judgments lead to self-fulfilling prophecies, because they are communicated from "I" instructor to "myself" doer. We become what we think about.
+
+But let's be clear about something: letting go of judgments **does not** mean ignoring errors. Rather, it means seeing events as they are and not adding anything to them.
+
+It's the same attitude we hold when fixing cars. A car engine goes out, we say that the engine is smoking and not turning on; we don't say the entire car is bad. This comes from a place of "Here's what I'm seeing, let's backtrace to the root issue" compared to "this is bad, I am bad, and I cannot get any better, therefore I am a loser".
+
+One of my personal favorite illustrations that Gallwey makes is when he helps a student without providing any instructions:
+
+" 
+"I can't remember you telling me anything! You were just watching me, but I sure learned a lot" **He had learned without being taught**
+"
+
+> "I had learned and he had learned, but there was no one to take credit"
+
+The key is to focus on objective reality. Neither bad nor good. Even the presence of positive judgment reveals a bad standard to avoid, and if one happens to find himself NOT in the good, then he must be bad. In other words, keep it neutral.
+
+> "Compliments are criticisms in disguise! Both are used to manipulate behavior, and compliments are just more socially acceptable!"
+
+It is impossible to judge one event as positive without seeing other events as negative.
+
+To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
 
 # Chapter 4: Getting it Together Part 2: Letting it Happen
+
+## Summary
+
+## Notes
+
+This chapter focuses on how to improve something without labeling it as "bad"; a process by which actions flow spontaneously and sensibly without an ego-mind on the scene chasing positives and trying to reform negatives.
 
 # Chapter 5: Master Tips
 

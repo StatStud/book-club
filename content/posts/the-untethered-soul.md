@@ -41,7 +41,20 @@ cover:
 - But you are not these events; you're the one who experienced the events. For how can you define yourself as the things that happened to you?
 - When your mind is disturbed, don't ask, "what do I do about this? What action do I take?", ask "Who am I that notices this?"
 - If you pass through a period of darkness or depression, ask yourself, "Who is aware of the darkness?"
-- 
+- The highest spiritual path is life itself
+- You're not helping anyone by being miserable
+- Events don't determine whether or not you're going to be happy
+- The solution is simple: Stop resisting **by** dealing with each situation with acceptance and relaxing into their being.
+    - This process of **relaxing acceptance** through resistance is beneficial to everything in your life because it directly addresses how to keep your heart open when it's trying to close. Deep inner release is a spiritual path in and of itself; it is the path of nonresistance, the path of acceptance, the path of surrender. The key is to just relax and release **AND** deal with what's left in front of you. No need to worry about the rest.
+    - Acceptance means that events can make it through you without resistance. 
+- Since you know you're going to die, be willing to say what needs to be said and do what needs to be done
+- The fear will fade once you understand that the only thing there is to get from life is the growth that comes from experiencing it
+- What actually gives life meaning is the willingness to live it; it's not one big championship nor defining moment, but the small, iterative hour-to-hour **courage** to experience life's events in the present moment.
+- You fear death because you crave life; as if there's something to get before your time's up that you have yet to experience.
+- Many people feel that death will take something away from them. The wise person realizes that death is constantly giving them something. Death is giving meaning to your life; you're the one who throws your life away from all the time you waste.
+- You really don't need more time before death; what you need is more depth of experience during the time you're given.
+
+
 
 # Introduction
 
@@ -784,14 +797,244 @@ The end goal is this: you will no longer identify with anything outside the sens
 
 Side note: I mean let's be real: the only reason why I'm even reading this book is because Singer is a Billionaire, and by that definition, he is successful and highly regarded by society. Yet, if these are his words, and his true beliefs, he must not be attached to those successes the same way Marcus Arelius was not attatched to his material success. I think both of these people have achieved the bottom of their cups, so that they can accept being poured by others, but they have an inner depth from which, if and when the water stops pouring, they will be content and filled up
 
-
 # Chapter 15: The path of unconditional happiness
+
+## Summary
+
+Billions of things could happen that you haven't even thought of before. The real question is whether you want to be happy regardless of what happens, because happiness is a choice and events don't determine whether or not you're going to be happy. You're not helping anyone by being miserable.
+
+## Notes
+
+The highest spiritual path is life itself.
+
+If you know how to live life daily, it all becomes a liberating experience. 
+
+According to Singer, we humans only have one choice to make in life: do we want to be happy or unhappy?
+
+Once you make that choice, your path to life, according to Singer, becomes clear.
+
+Side note: to be clear, Singer is emphasizing that fact that happiness is a choice we can make at any time, independent of what happens to us, which is something I agree with.
+
+The choice to be happy is a simple one, but our deep-rooted set of preferences get in the way; if you're starving, you don't care what you eat as long as it's food. Likewise, you can choose to be happy without any qualifiers. 
+
+The question we specifically get to answer is: "Do you want to be happy from this point forward for the rest of your life, regardless of what happens?"
+
+If you answer yes, then that means you will choose to recognize that things happen FOR you rather than to you; if your wife leaves you, if you get fired from your job, if you go broke, you will still hold a positive attitude while taking the right actions.
+
+You know what to do, and you know you're going to do it, then your next question becomes, are you doing to do that thing while being happy or being upset? It's your choice.
+
+It means you choose to acknowledge that happiness is in your control. 
+
+Unconditional happiness is the highest technique there is towards enlightenment; you just have to really mean it when you say that you choose to be happy. And you have to choose it regardless of what happens. This is truly a spiritual path, and it is as direct and sure to awakening as could possibly exist.
+
+Happiness is a simple choice. When everything is going well, it's easy to be happy. But the moment something difficult happens, it's not so easy. 
+
+Billions of things could happen that you haven't even thought of before. The real question is whether you want to be happy regardless of what happens. 
+
+You're not helping anyone by being miserable.
+
+> Events don't determine whether or not you're going to be happy
+
+You can be happy just to have waken up this morning.
+
+If you truly wish to be happy, you have to let go of the part of you that wants to create melodrama.
+
+In the final analysis, enjoying life's experiences is the only rational thing to do.
+
+Every time a part of you begins to get unhappy, let it go. Use affirmations, or do whatever you need to do to stay open.
+
+Side note: It's important to note that Singer references affirmations. How are these different from the mental narratives or mental models we tell ourselves?
+
 
 # Chapter 16: The spiritual path of nonresistance
 
+## Summary
+
+You truly can reach a state in which you never become any more stress, tension, or problems for the rest of your life. It starts by realizing that life is giving you a gift, and that gift is the flow of events that takes place between your birth and death. To handle this flow, your heart and mind must be open and expansive enough to encompass reality. The only reason they're not is because you resist reality.
+
+## Notes
+
+According to Singer, one should view their spiritual work as learning to live life without stress, problems, fear, or melodrama; this path of using life to evolve spiritually is truly the highest path. 
+
+There is no reason for tension or problems because stress only happens when you resist life's events.
+
+If you're neither pushing life away, nor pulling it toward you, then you are not actively creating any resistance.
+
+You are simply present. 
+
+Ask yourself this question: why are we so resistant to just letting life be life?
+
+If you carefully look inside of yourself, you will see that it's you, the Self, driven by willpower.
+
+**Will** is a real force that emanates from your being. It's what makes your arms and legs move. You use the same will to hold onto thoughts when you want to concentrate on them.
+
+The power of Self, when it is concentrated and directed into the physical, mental, or emotional realms, creates a force called **will**. That's what you use when you try to make things happen or not happen. You have the power (and the choice) to affect things.
+
+When we resist an event that has already happen, we are actually resisting the event passing through us; we don't want it affecting us inside.
+
+The experience of an event does not stop with our sensory observation of it; the event has to pass through the psyche at an energetic level. 
+
+The initial observation touches our mental and emotional energy pools, creating movements in the energy; the assertion of willpower can stop the energy transfer, and that's what creates tension.
+
+Since the event has already passes, you are actually struggling with yourself, no the event. 
+
+> In addition, think about how much energy is wasted resisting what *might* happen; since most of the things you think might happen *never* do, you are just throwing your energy away.
+
+How you deal with your energy flow has a major effect on your life. 
+
+> If you assert your will against the energy of an event that has already happened, it is like trying to stop the ripples caused by a leaf dropping into a still lake.
+
+> This is the human predicament. Events have happened and we continue to hold their energy inside of us by resisting them.
+
+Now, when we face today's events, we are neither prepared to receive them nor capable of digesting them; because we're still struggling with past energies.
+
+Overtime, the build up of blocked energies lead to burn-out.
+
+**But there is no reason to get stressed-out.** 
+
+If you permit the energy to pass by you by letting go, then you can be as fresh every moment as you would be on a stress-free vacation.
+
+The solution is simple: **stop resisting**
+
+How do you do this? By first observing when resisting happens.
+
+It's clear that not all of us resist the same things or have the same issues. This is because we don't have the same preconceived notions of how things should be or how they should matter to us (#7 certainty of life: individual subjectivity).
+
+Impressions from past events may lead us to resist current events, thereby creating inner tension. But the truth is, the entire process has no real meaning; it simply is.
+
+So here we are, stuck dealing with the current event with blocked energies from the past; you will not be coming from a place of clarity, but from a place of inner resistance and tension.
+
+The solution is simple: Stop resisting **by** dealing with each situation with acceptance and relaxing into their being.
+
+This process of **relaxing acceptance** through resistance is beneficial to everything in your life because it directly addresses how to keep your heart open when it's trying to close. Deep inner release is a spiritual path in and of itself; it is the path of nonresistance, the path of acceptance, the path of surrender. The key is to just relax and release **AND** deal with what's left in front of you. No need to worry about the rest.
+
+Acceptance means that events can make it through you without resistance. 
+
+> If an event takes place and is able to make it through your psyche, you will be left face-to-face with the actual situation as it truly exists. And, since you're dealing with the actual event, rather than stored energies simulated by the event, you won't assert reactive energy from your past.
+
+Simply put: you will find yourself dealing with issues with greater ease.
+
+It is actually possible to never have another problem again, for the rest of your life. Why? Because events are not problems; they're just events--your resistance to them is what causes problems. 
+
+Side note: How does this compare with "The Way of the Superior Man" book, when it claims that the problems and challenges never end?
+
+> **URGENT NOTE FROM SINGER**: Don't think that because you accept reality it means you don't deal with things; **you still do get to deal with them**, but this time, it will be from a place of clarity, knowing that your next move will move you upwards towards transcendence, rather than dig you lower into deeper trouble.
+
+You will be surprised to find that in most situations there's nothing to deal with except for your own fears and desires. 
+
+Fear and desire making everything seem so complicated. If you don't have fear nor desire about an event, there's really nothing to deal with; you simply allow life to unfold and interact with it in a natural and rational manner.
+
+When the next thing happens, you're fully present in that moment and simply enjoy the experience of life.
+
+When events of this world make it through you, you have reached a deep spiritual state; you may now be conscious in the presence of whatever takes place, without building up blocked energies. When you attain this state, everything becomes clear. 
+
+This is in contrast with what everybody else is attempting to deal with; they focus on the world around them while struggling with their own reactions and personal preferences.
+
+When a person is dealing with their own fears, anxieties, and desire, how much energy is left for dealing with what's actually happening?
+
+Side note: this is actually what Adam Scott recommends: energy management
+
+Stop and think about what you're capable of achieving. Up to now, your capacities have been constrained by constant inner struggles. Imagine what would happen if your awareness was free **only** on the events actually taking place.
+
+> If you can bring this level of awareness and clarity to everything you do, your life would change.
+
+So, as your path, you take on the work of using life to let go of your resistance.
+
+Relationships are a great way to work with yourself. Imagine if you used relationships to get to know other people, rather than to satisfy what is blocked inside of you. The same is true of your daily work. The biggest mistake most people make is believing they are working for someone else (Earl Nightgale).
+
+It's all about letting go of the useful perceptions and narratives we tell ourselves that lead us to self-suffering while others seemingly enjoy life with that magic touch.
+
+
 # Chapter 17: Contemplating death
+
+## Summary
+
+Death is guaranteed; it comes unannounced, at any time and any place. Death is what gives meaning to life and makes it precious. The fear of death is simply a call to enjoy you life by spending more time doing what you wish to do. In the final analysis, death is nothing to be feared, but something that frees us from life itself.
+
+## Notes
+
+While someone could remind you of the insignificance of the things that you cling to, death takes them all away in a second.
+
+A wise person realizes that at any moment, they may breath out their last breath.
+
+Death comes unannounced, any time and any place. 
+
+> When death comes one day and says, "It's time to go", you may respond, "what? now? I'm not ready", to which death will respond with, "I've given you [insert you age] years, look at how much time I've given you, yet you still haven't achieved what you wanted? Why". And from this you may come to the realization, "I wasn't paying attention...I didn't think it mattered".
+
+The beauty of embracing deep truths is that you don't have to change your life; you just change how you *live* your life. It's not *what* you're doing; it's *how much* of you is doing it.
+
+In regard to death, you're probably not going to get a warning--very few people are told when they're going to die. Almost everyone just takes a breath and doesn't know they didn't take another.
+
+> Since you know you're going to die, be willing to say what needs to be said and do what needs to be done.
+
+Learn to live as though you are facing death at all times, and you'll become bolder and more open. When you live fully, you don't have any last wishes.
+
+> The fear will fade once you understand that the only thing there is to get from life is the growth that comes from experiencing it.
+
+Life itself is your career, and your interaction with life is your most meaningful relationship.
+
+> What actually gives life meaning is the willingness to live it; it's not one big championship nor defining moment, but the small, iterative hour-to-hour **courage** to experience life's events in the present moment.
+
+When you're told that death is around the corner something special happens: you change, but life stays the same.
+
+If you challenged yourself to live as though it were your last week, your mind may come up with all kinds of **suppressed desires**. You may feel rushed to do complete all those desires. But that's not the answer. Rather, that rush to complete the desires is your attempt to get special experiences from life that makes you miss the actual experience of life. 
+
+What do we mean by this?
+
+> Life is not something you get; it's something you experience. Life exists with or without you. Life has been going on since that dawn of age; you simply experience this tiny sliver of it.
+
+If you're busy trying to get something, you'll miss the tiny sliver that's you're actually experiencing.
+
+Life is not something wasted.
+
+Death is what makes life precious.
+
+> You fear death because you crave life; as if there's something to get before your time's up that you have yet to experience.
+
+Many people feel that death will take something away from them. The wise person realizes that death is constantly giving them something. Death is giving meaning to your life; you're the one who throws your life away from all the time you waste.
+
+If you are living every experience fully, then death doesn't take anything from you. There's nothing to take because you're already fulfilled. That's why the wise being is always ready to die.
+
+> You really don't need more time before death; what you need is more depth of experience during the time you're given.
+
+The wise realize that in the end, life belongs to death. 
+
+Death is the ultimate reality of life.
 
 # Chapter 18: The secrete of the middle way
 
+## Summary 
+
+## Notes
+
+Those who have truly learned the secretes of life recognize these truths without having to read anything.
+
+The Tao can be found in the middle between two extremes. It's the place on the pendulum where there is no energy pushing in either direction. Everything has a yin and yang.
+
+The way is the place in which these forces balances quietly. 
+
+Singer claims that going between extremes wastes energy because the pendulum that's on one far side will swing to the equal but opposite side. The Tao, on the other hand, is in the middle.
+
+Side note: I wonder how this compares with the idea of "contrast" (contrastive learning) or Ecotones.
+
+> If you're driving and somebody cuts you off, you feel your energy start to pull off-center; you actually feel it in your heart. **As you let go**, it comes back to center.
+
+Side note: this is actually what happened to me a few hours ago. Some guy "skipped" my family and I in the line as we were waiting to be seated in an airport loughe (I add quotes because we (my family in I) were in the wrong for not reserving a spot first). I initially started getting upset by his remark and gesture, but then in an instant I told myself "Hurt people hurt people; he's not wrong; this does not matter in the grand scheme of things", and instantly I felt myself letting go of the negativity.
+
+But remember that this middle way, or the Tao, is not a static equilibrium; it is a dynamic equilibrium where you move from one balance point to another. You don't have any concepts nor preferences, but you let the forces move you.
+
+
 # Chapter 19: The loving eyes of God
+
+## Summary
+
+The final journey is becoming one with God.
+
+## Notes
+
+
+If you move your search for God down to the mental-intellectual level, somebody will dispute it; you can't know God that way. It must come from actual experience. That's what happens when you meditate. That's what happens when you let go of your lower self. 
+
+All you have to do is notice the energy flow, and you will start to notice the tendency toward the qualities of the Divine.
+
 

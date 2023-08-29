@@ -32,6 +32,8 @@ cover:
 - "I had learned and he had learned, but there was no one to take credit"
 - "Compliments are criticisms in disguise! Both are used to manipulate behavior, and compliments are just more socially acceptable!"
 - To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
+- So this begs the question: how do we "let it happen?" Simple: if you know how to do it, then do it. If you don't know how to do it, then allow yourself to learn.
+- To the "myself" unconscious, a picture is worth a thousand words. The best way for "myself" to learn is through action. Period.
 
 # Introduction
 
@@ -118,7 +120,9 @@ These three skills combined overcome "trying too hard" and lead to mastery.
 
 ## Summary
 
-The first inner skill to be developed in the inner game is that of nonjudgmental awareness. 
+The **first** inner skill to be developed in the inner game is that of **nonjudgmental awareness**. 
+
+The reward of habitually practicing nonjudgmental awareness is **self-confidence**.
 
 To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
 
@@ -162,13 +166,60 @@ It is impossible to judge one event as positive without seeing other events as n
 
 To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
 
+Really think about the power of nonjudgement; you're able to read books, turn on lights, and go out for a run, all automatically, **without thinking**. But the moment you compete; the moment you are set to create a comparative "good" versus "bad", you start THINKING and measuring yourself to others. Comparison is the thief of joy, it's also the initiator of the negative self-talk.
+
 # Chapter 4: Getting it Together Part 2: Letting it Happen
 
 ## Summary
 
+The primary goal of the "I" (Self 1, conscious, ego driven) is to communicate to "myself" (Self 2, unconscious, actor) the goal at hand via imagery **AND** *letting* Self 2 do its job. By imagery, we mean results-based imagery; how the results should *appear* if we are successful.
+
+The native language through which Self 2 learns is through imagery.
+
+The inner game can be summarized in three steps:
+1. learning to program the moist computer "myself" with images of an ideal goal, rather than verbal instruction
+2. Learning to trust thyself 
+3. Learning to observe without judgement
+
 ## Notes
 
 This chapter focuses on how to improve something without labeling it as "bad"; a process by which actions flow spontaneously and sensibly without an ego-mind on the scene chasing positives and trying to reform negatives.
+
+Understand, similar to what Michale Singer writes, that YOU are not your body, nor are you your tennis matches; you are the observer of these actions. So, allow your body to let it do its thing, without judging.
+
+Side note: I mean, this may be dangerous if you live hedonistically, just saying.
+
+> So this begs the question: how do we "let it happen?" Simple: if you know how to do it, then do it. If you don't know how to do it, then allow yourself to learn.
+
+Muscle memory is abundant: in speech, in hands, in body, in mind. 
+
+So the important thing for beginning players to know is to **allow the natural learning process** to take place and to forget about stroke-by-stroke self-instructions.
+
+> The main job of the chatty "I" (the conscious ego) is to **set goals** by communicating to "myself" (the unconscious learning actor) what the target to aim for is.
+
+The slow and painful way of learning is by thinking about each step and then commanding ourselves to execute it.
+
+So how should we learn? Just **watch** and **observe**. Practice nonjudgmental awareness by being curious. Observe *visually* the lessons. Then, when you feel ready, JUST GO FOR IT!
+
+Ironically, once we succeed, we're unable to explain *how* we do it, making us question whether we know how to do it to begin with--BUT WE DO, the proof is in the data!
+
+"While most of us who learn tennis through verbal instruction can explain in great detail how the ball should be hit but have trouble doing it [ourselves]."
+
+> To the "myself" unconscious, a picture is worth a thousand words.
+
+Side note: I'm pretty sure Naval Ravikant spoke of something similar to this; how the greatest athletes can't describe exactly how they do their skill, simply because they master the skill at such an intuitive level.
+
+> To the "myself" unconscious, a picture is worth a thousand words. The best way for "myself" to learn is through action. Period.
+
+The benefits to your game come not from *analyzing* the strokes of the top players, but from concentrating without thinking and simply letting yourself **absorb** the images before you.
+
+Side note: But how does this differ from Ray Dalio's "reflection" component of his success formula? How can we reflect if we can't label certain actions as "good" or "bad"? Maybe view them from an engineering/curiosity standpoint and fix the issue as it is?
+
+The inner game can be summarized in three steps:
+1. learning to program the moist computer "myself" with images of an ideal goal, rather than verbal instruction
+2. Learning to trust thyself 
+3. Learning to observe without judgement
+
 
 # Chapter 5: Master Tips
 

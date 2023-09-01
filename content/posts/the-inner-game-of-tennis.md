@@ -223,7 +223,23 @@ The inner game can be summarized in three steps:
 
 # Chapter 5: Master Tips
 
+## Notes
+
+"The perfect strokes are already within us waiting to be discovered."
+
+## Summary
+
+Said broadly, the source of infinite wisdom is within, and it is from within that we can discover our true gifts to society.
+
+The rest of this chapter focuses on tennis-specific techniques.
+
 # Chapter 6: Changing Habits: Practical Applications of Inner-Game Learning
+
+## Summary 
+
+## Notes
+
+
 
 # Chapter 7: Concentration 
 

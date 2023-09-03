@@ -34,6 +34,10 @@ cover:
 - To see your strokes (or anything in life) as they are, there is no need to attribute goodness or badness to them. By ending judgment, you do not avoid seeing what is; ending judgement means you neither add nor subtract from the facts before your eyes. Things appear as they are--undistorted. In this way, the mind becomes more calm.
 - So this begs the question: how do we "let it happen?" Simple: if you know how to do it, then do it. If you don't know how to do it, then allow yourself to learn.
 - To the "myself" unconscious, a picture is worth a thousand words. The best way for "myself" to learn is through action. Period.
+- The Inner Game way of learning is about unlearning the unnatural ways of learning and relearning the childlike ways of learning that are innate within us all
+- It is much more difficult to break a habit when there is no adequate replacement for it (both for positive and negative habits). A child doesn't dig his way out of his old grooves; he simply starts new ones. The groove may be there, but if you're not using it unless you choose to. A child doesn't have to break a bad habit because he doesn't think he has the habit; he simply leaves it in place of another, more serving habit.
+- 
+
 
 # Introduction
 
@@ -237,9 +241,36 @@ The rest of this chapter focuses on tennis-specific techniques.
 
 ## Summary 
 
+The Inner Game way of learning is about unlearning the unnatural ways of learning and relearning the childlike ways of learning that are innate within us all.
+
+Energy can never be created nor destroyed; a broken habit must be replaced by a newer one.
+
+Here are the 5 steps to natural learning:
+1. Nonjudgmental observation
+2. Visualize the act
+3. Let it happen
+4. Nonjudgmentaly observe the results
+5. Iterate
+
 ## Notes
 
+> The Inner Game way of learning is about unlearning the unnatural ways of learning and relearning the childlike ways of learning that are innate within us all.
 
+Learning is not the collection of information, but the **realization** of something which **changes** one's behavior, either externally (such as a tennis stroke or making friends) or internally (the habitual narratives we tell ourselves).
+
+The time for change comes when we realize that the same function could be served in a better way. 
+
+It is much more difficult to break a habit when there is no adequate replacement for it (both for positive and negative habits).
+
+> Every time you swing your racket in a certain way, you increase the probability that you will swing that way again.
+
+The above quote is NOT limited to tennis, but applies to all habits.
+
+Without a healthy alternative to our negative habits, we grit our teeth, tense our muscles, and exert all the will power in our abilities to simply stop the negative habit.
+
+A child doesn't dig his way out of his old grooves; he simply starts new ones. The groove may be there, but if you're not using it unless you choose to. A child doesn't have to break a bad habit because he doesn't think he has the habit; he simply leaves it in place of another, more serving habit.
+
+In short, there is no need to fight old habits; start new ones instead. 
 
 # Chapter 7: Concentration 
 

@@ -36,6 +36,8 @@ cover:
 - To the "myself" unconscious, a picture is worth a thousand words. The best way for "myself" to learn is through action. Period.
 - The Inner Game way of learning is about unlearning the unnatural ways of learning and relearning the childlike ways of learning that are innate within us all
 - It is much more difficult to break a habit when there is no adequate replacement for it (both for positive and negative habits). A child doesn't dig his way out of his old grooves; he simply starts new ones. The groove may be there, but if you're not using it unless you choose to. A child doesn't have to break a bad habit because he doesn't think he has the habit; he simply leaves it in place of another, more serving habit.
+- To still the mind, one must learn to put it somewhere. It cannot just be let go; it must be parked. When this is done, we have achieved concentration.
+- Concentration is not *trying* to concentrate; concentration is a fascination of the mind.
 - 
 
 
@@ -273,6 +275,37 @@ A child doesn't dig his way out of his old grooves; he simply starts new ones. T
 In short, there is no need to fight old habits; start new ones instead. 
 
 # Chapter 7: Concentration 
+
+The quiet mind cannot be achieved by means of intellectual understanding. Only the **experience** of peace in a moment when the mind is relatively still is one sufficiently encouraged to let go more completely the next time.
+
+Side note: this is similar to Singer's understanding that God cannot be understood via intellectual understanding
+
+Very gradually, one begins to trust the natural process which occurs when the mind is less and less active.
+
+When one has experienced the practical benefits of a still mind, he usually finds it a strangely elusive state.
+
+They call it a secrete for a reason, because the moment you proudly announced your secrete and begin telling others, you are now on stage for performance and the self-critic is on.
+
+> To still the mind, one must learn to put it somewhere. It cannot just be let go; it must be parked. When this is done, we have achieved concentration.
+
+> One of the most **practical** ways to increase concentration on the ball is to learn to love it!
+
+Indian yogis from bahkti yoga recognized the power of love in overcoming distraction.
+
+> Concentration is not *trying* to concentrate; concentration is a fascination of the mind.
+
+Holy sheep. This is in line with:
+- curiosity
+- love
+- captivation
+- smitten
+
+When there is love present, the mind is drawn irresistibly toward the object of love. It is effortless and relaxed, not tensed and purposeful. 
+
+Ideally, if we wish to make concentration even easier, that which we love should be an objet in motion (like a tennis ball, but you can get creative).
+
+Meditation and breath work are two of the most direct ways we can improve our attention.
+
 
 # Chapter 8: Games People Play on the Court
 

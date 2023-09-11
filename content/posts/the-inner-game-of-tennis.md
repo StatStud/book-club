@@ -276,6 +276,11 @@ In short, there is no need to fight old habits; start new ones instead.
 
 # Chapter 7: Concentration 
 
+## Summary
+Concentration is not *trying* to concentrate; concentration is a **fascination** of the mind
+
+## Notes
+
 The quiet mind cannot be achieved by means of intellectual understanding. Only the **experience** of peace in a moment when the mind is relatively still is one sufficiently encouraged to let go more completely the next time.
 
 Side note: this is similar to Singer's understanding that God cannot be understood via intellectual understanding
@@ -309,7 +314,21 @@ Meditation and breath work are two of the most direct ways we can improve our at
 
 # Chapter 8: Games People Play on the Court
 
+> "I began to realize that I was about to be beaten by a 'better-than-average club player'. I don't know what was happening inside his head, but he couldn't finish me off. As I walked off the court, **I had no sense that I had won the match--rather that he had lost it.**
+
+If you're feeling anxious, answer these questions (preferably on paper):
+- What is the worst that can happen?
+    - What are you going to do about it?
+- What is the best that can happen?
+    - What are you going to do about it?
+- What do you actually want?
+    - What are you going to do about it?
+
 # Chapter 9: The meaning of Competition
+
+The thrill in competition is not from beating the other person, but from confronting and iteratively overcoming larger and larger obstacles that permit us to grow.
+
+It's on the ascending climb that we experience the most euphoria.
 
 # Chapter 10: The Inner Game Off the Court
 

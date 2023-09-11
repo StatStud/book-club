@@ -12,15 +12,12 @@ cover:
 
 # Summary
 
-## One Sentence Summary
-
-## One paragraph Summary
-
 ## What is the foundational knowledge required for me to learn this?
-
-# Reading Comprehension questions from ChatGPT
+- Self-awareness
 
 # What ACTIONS/HABITS will I partake after reading this book?
+- If I have a bad habit, rather than focusing on avoiding that habit, occupy myself with something new/exciting/constructive; focus on cultivating new neural paths while the old one dies down
+- Knowing that love is the solution for concentration, and knowing that it is our attitude at the beginning of a test that determines its successful outcome, it becomes clear that in order to concentrate, adopt the attitude of curiosity, love, admiration, and captivating wonder towards your task
 
 # What Questions do I have after reading this book?
 
@@ -38,7 +35,6 @@ cover:
 - It is much more difficult to break a habit when there is no adequate replacement for it (both for positive and negative habits). A child doesn't dig his way out of his old grooves; he simply starts new ones. The groove may be there, but if you're not using it unless you choose to. A child doesn't have to break a bad habit because he doesn't think he has the habit; he simply leaves it in place of another, more serving habit.
 - To still the mind, one must learn to put it somewhere. It cannot just be let go; it must be parked. When this is done, we have achieved concentration.
 - Concentration is not *trying* to concentrate; concentration is a fascination of the mind.
-- 
 
 
 # Introduction

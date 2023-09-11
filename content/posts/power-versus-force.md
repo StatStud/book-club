@@ -224,6 +224,10 @@ Below consciousness level 200, comprehension is limited by the dominance of Lowe
 
 ## Chapter 3: Test Results and Interpretation
 
+![](/power-force.png)
+Calibrated levels correlate with specific processes of consciousness--your emotions, perceptions, attitude, worldviews, and spiritual beliefs.
+
+The critical 
 
 ## Chapter 3: Test Results and Interpretation
 

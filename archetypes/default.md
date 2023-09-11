@@ -18,6 +18,10 @@ cover:
 
 ## What is the foundational knowledge required for me to learn this?
 
+# What do I hope to learn AND take ACTION on after reading this book?
+
+# What are my assumptions before reading this book?
+
 # Reading Comprehension questions from ChatGPT
 
 # What ACTIONS/HABITS will I partake after reading this book?

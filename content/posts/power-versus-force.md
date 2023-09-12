@@ -26,6 +26,7 @@ cover:
 # What Questions do I have after reading this book?
 
 # What Phrase(s) can I add/validate to my mantras?
+- It isn't life's events, **but how one reacts to them and the attitude that one has about them**, that determines whether such events have a positive or negative effect on one's life.
 
 
 # Foreword
@@ -227,7 +228,37 @@ Below consciousness level 200, comprehension is limited by the dominance of Lowe
 ![](/power-force.png)
 Calibrated levels correlate with specific processes of consciousness--your emotions, perceptions, attitude, worldviews, and spiritual beliefs.
 
-The critical 
+The critical point in the scale of consciousness calibrates at level 200, which is the level associated with integrity and **COURAGE**.
+
+What does this point practically mean? It means that all attitudes, thoughts, feelings, associations, entities, or historical figures below that level of calibration make a person go weak, whereas those that calibrate higher make subjects go strong.
+
+> In other words, level 200 represents the balance point between weak and strong attractors--positive and negative influences.
+
+The bottom two scales represent the zone of hopelessness and depression; the higher levels such as fear or anger are characterized by egocentric impulses arising from the primary impetus drive for **personal** survival.
+
+At the level of pride, the survival motive may expand to comprehend the survival of others as well.
+
+> As one crosses the demarcation between negative and positive influence into **COURAGE**, the well-being of **others** becomes increasingly important.
+
+By the 500 level, the **happiness of others** emerges as the essential motivating force; the 500s are characterized by interest in spiritual awareness for both oneself and others.
+
+By the 600 level, the good of mankind and the search for enlightenment are the primary goals. 
+
+The last levels, between 700 to 1,000, are characterized by a life dedicated to the salvation of all humanity.
+
+> If the hopeless (score<50) can come to desire (score = 125) something better and then use the energy of anger (score = 150) to develop pride (score = 175), they may then be able to take the step of **COURAGE** (score = 200) and proceed to improve their their individual or collective conditions.
+
+By taking **responsibility** for the consequences of his own perceptions, the observer can transcend the role of victim to an understanding that "nothing out there has power over you". 
+
+> It isn't life's events, **but how one reacts to them and the attitude that one has about them**, that determines whether such events have a positive or negative effect on one's life.
+
+Nothing has the power to "create" stress. The same loud music that raises the blood pressure of one person can be a source of delight to another. A divorce may be traumatic if it's unwanted, or a release into freedom if it's desired.
+
+Whenever force meets power, force is eventually defeated.
+
+The key to joy is unconditional kindness to all life, including one's own, which we refer to as compassion.
+
+
 
 ## Chapter 3: Test Results and Interpretation
 

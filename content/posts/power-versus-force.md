@@ -225,12 +225,26 @@ Below consciousness level 200, comprehension is limited by the dominance of Lowe
 
 ## Chapter 3: Test Results and Interpretation
 
+## Summary
+
+People who operate at high levels of consciousness grow stronger, while the opposite trend happens to those who operate at lower levels. The tipping point from high and low is **COURAGE**!
+
+## Notes
+
 ![](/power-force.png)
 Calibrated levels correlate with specific processes of consciousness--your emotions, perceptions, attitude, worldviews, and spiritual beliefs.
+
+The author stresses the importance in remembering that the calibration chart is on a **logarithmic scale**. This means that the level 300 is *not* merely twice has much as 150, but 10^(300) times as much!!
+
+This means that an increase of even a few points represents a major advance in power; the rate of increase in power as we move up the scale in enormous.
 
 The critical point in the scale of consciousness calibrates at level 200, which is the level associated with integrity and **COURAGE**.
 
 What does this point practically mean? It means that all attitudes, thoughts, feelings, associations, entities, or historical figures below that level of calibration make a person go weak, whereas those that calibrate higher make subjects go strong.
+
+All levels below 200 are destructive of life in both the individual and society at large; all levels above 200 are constructive expressions of power.
+
+The decisive level of 200 is the fulcrum that divides the general areas of force and power.
 
 > In other words, level 200 represents the balance point between weak and strong attractors--positive and negative influences.
 
@@ -258,9 +272,130 @@ Whenever force meets power, force is eventually defeated.
 
 The key to joy is unconditional kindness to all life, including one's own, which we refer to as compassion.
 
-
-
 ## Chapter 3: Test Results and Interpretation
+
+## Summary
+
+## Notes
+
+A person's level of consciousness are always mixed; they may operate at one level in a given area of life and on quite another level in another area, but their overall level of consciousness is the sum total effect of these various levels.
+
+### Energy Level 20: Shame
+
+Shame is perilously proximate to death, prone to physical illness, and often found with isolation. Shame-based personality is that of shy, withdrawn, and introverted.
+
+The behavior of people whose consciousness is only in the 20s is dangerous; they're prone to hallucinations and paranoia with a high risk for neurosis.
+
+Shame-based individuals compensate with perfectionism and rigidity, becoming driven and intolerant.
+
+### Energy Level 30: Guilt
+
+Masochism and victim hood are the common personality traits.
+
+Guilt-domination results in a preoccupation with "sin"; either acting out their own guilt of sin or projecting it onto others.
+
+Capital punishment is an example of how killing gratifies a guilt-ridden populace. 
+
+### Energy Level 50: Apathy
+
+This is the level of homelessness and the derelicts of society, characterized by poverty, despair, and hopelessness from a state of helplessness. It's victims are needy and lack not only resources, but the energy to avail themselves of what they may be available.
+
+The world and future appear bleak. 
+
+Without the will to live, the hopeless stare blankly, unresponsive to stimuli; death through passive suicide.
+
+Society lacks sufficient motivation to be of any real help to individuals at this level because they're seen as drains of resources.
+
+Apathy is the level of the abandonment of hope. 
+
+### Energy Level 75: Grief
+
+In grief, one sees sadness everywhere.
+
+This is the level of sadness, loss, and despondency characterized by a life of constant regret and depression; it's the level of habitual losers and chronic gamblers who accept failure as part of their lifestyle, often resulting in loss of jobs, friends, family, and opportunity.
+
+### Energy Level 100: Fear
+
+Fear of danger is healthy, and a lot more energy is available.
+
+Fear runs much of the world, spurring on endless activity.
+
+Because it takes energy to rise above fear, those who are "stuck" at this level are unable to reach a higher level unaided. Thus, the fearful seek strong leaders who appear to have conquered their own fears to lead them out of its slavery.
+
+### Energy Level 125: Desire
+
+Even more energy is available at this level. Desire motivates vast areas of human activity, especially the economy. Desire moves us to expend great effort to achieve goals or obtain rewards.
+
+The desire for money, prestige, or power runs the lives of many of those who have risen above fear as their predominant life motif.
+
+Desire is also the level of addiction, wherein it becomes a craving more important than life itself.
+
+Desire has to do with accumulation and greed. 
+
+### Energy Level 150: Anger
+
+Anger can lead to either constructive or destructive action. 
+
+Anger can be a fulcrum by which the oppressed are eventually catapulted to freedom.
+
+Anger can also manifest itself as resentment and revenge, thereby becoming volatile and dangerous.
+
+Since anger stems from frustrated wants, it's based on the energy level field below it. Frustration results from exaggerating the importance of desires.
+
+### Energy Level 175: Pride
+
+At a calibration of 175, pride has enough energy to run the United States Marine Corps.
+
+In contrast to the lower energy fields, people feel positive as they reach this level.
+
+But, it's under the threshold of 200 because "pride goeth before a fall"; pride is defensive and vulnerable because it's dependent upon external conditions, without which it can suddenly revert to a lower level.
+
+The inflated ego is, for example, a vulnerable spot. Pride remains weak because it can be knocked off its pedestal back to shame, which in turn is the threat that fires the fear of loss and pride.
+
+### Energy Level 200: COURAGE!
+
+Power finally appears.
+
+All participants at energy levels below 200 go weak, but everyone goes strong in response to the life-supporting fields above 200.
+
+**COURAGE** is the critical line that distinguishes between positive and negative influences in life. 
+
+**COURAGE** is the zone of exploration, accomplishment, fortitude, and determination.
+
+At the levels below **COURAGE**, the world is seen as hopeless, sad, frightening, or frustrating. But upon attaining **COURAGE** life is seen to be exciting, challenging, stimulating, and rewarding.
+
+**COURAGE** implies the willingness to try new things and deal with the changes and challenges of life.
+
+With **COURAGE** the person has the energy to learn new job skills. Growth and education become attainable goals. **COURAGE** is the capacity to face fears or character defects and to grow despite them.
+
+People at this level put back into the world as much energy as they take; at lower levels, populations as well as individuals drain energy from society without reciprocating. 
+
+### Energy Level 250: Neutrality
+
+Neutrality seeks to remove the barriers of overprotection and polarizing divisions by seeking to remain open; the neutral condition allows for flexibility and nonjudgmental, realistic appraisals of problems.
+
+To be neutral means to be relatively detached to outcomes; not getting one's way is no longer experienced as defeating, frightening, or frustrating.
+
+A person who is neutral will say, "Well, if I don't get this job, then I'll just get another".
+
+This is the beginning of **inner strength**; sensing one's power, one isn't easily intimidated or driven to prove anything. 
+
+It's the world view that, in spite of the ups and downs of life, things will basically be okay, if one can surf the waves of chaos.
+
+People at this level are easy to get along with and safe to be around and associate with because they're not interested in conflict, competition, or guilt; they're comfortable and basically undisturbed emotionally.
+
+These people recognize and value freedom, and thus are difficult to control.
+
+### Energy Level 310: Willingness
+
+At the neutral level, jobs are done adequately, but at the level of willingness, work is done well and success in all endeavors is common.
+
+Willingness implies that one has overcome inner resistance to life and is committed to participation. People who are willing are genuinely friendly, and social and economic success is abundant for them.
+
+### Energy Level 350: Acceptance
+
+
+
 
 ## Chapter 4: Levels of Human Consciousness
 

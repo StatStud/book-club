@@ -35,16 +35,64 @@ cover:
 # What Questions do I have after reading this book?
 
 # What Phrase(s) can I add/validate to my mantras?
+- We don't really create, but we **assemble** what has been created for us.
 
 # Barack Obama Election Ushers in a different world
 
+"Barack Obama proved that determination combined with opportunity and intelligence can make things happen--and in an exceptional way"
+
+"The world is excited about Barack Obama and the enw United States. Let's keep it that way"
+
 # Essays, Assets, and Stephen King
+
+"I knew that if I did something that was intended to impress the so-called critics that I would be selling not only myself short, but other people as well. That's one reason why I'm liked as well as disliked."
+
+"...one critic...mentioned that I do better when I choose to ignore my critics than when I pay attention to them. I have to agree."
+
+"Being true to yourself and your work is an asset. Remember that assets are worth protecting. No one will ever  tell you it well be easy to stick to your own convictions, but I believe it si necessary."
+
+That's why even an honest man, who has nothing to worry about, must have courage to pursue his truth.
+
+"Keep it straight and simple. You will be richer--in more ways than one--in the long run."
+
+# Innovation
+
+People often talk about something *new* being "innovative". most of the time, it's simply putting together *existing* elements to create what *appears* to be new.
+
+The key is to pay attention and keep your brain and sense open to new stimuli.
+
+Side note: Rick Rubin speaks of the same advice. Keeping your creative athena alert.
+
+It also helps to be thinking of two things at once--multilevel focusing is what I call it. The intersecting of ideas is when innovation will follow.
+
+Don't limit yourself to staid thinking because you want to excel in business...I view business deals as being an art form.
+
+Maybe that's why I've been a successful deal maker. I employ both sides of my brain when I'm thinking and working.
+
+I'm not advising you to dwell on the mysterious--a successful life requires common sense and hard work--but to be aware of things are are sometimes inexpiable because they can ne a big step towards innovation.
+
+Side note: Trump mentions the Golden Ratio as something he is interested in.
+
+> We don't really create, but we **assemble** what has been created for us.
 
 # The importance of being a team player
 
+As you will discover as you gain wisdom over the years, most of the things you do will rarely be just about you.
+
+> "Everyone had a good time, and everyone won"
+
+
 # An early Thanks Giving
 
+> Find a blessing in the midst of adversity
+
 # Learning is a new beginning 
+
+Being a know-it-all is like shutting the door to great discoveries and opportunities; keep your door open every day to something new and energizing.
+
+Start every day with a blank slate.
+
+Never think of learning as being a burden or studying as being boring. It may require some discipline, but it can be an adventure.
 
 # Learn to Think on you Feet
 

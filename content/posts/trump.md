@@ -96,6 +96,20 @@ Never think of learning as being a burden or studying as being boring. It may re
 
 # Learn to Think on you Feet
 
+"A leader has the right to be beaten, but never the right to be surprised"-Napoleon Bonaparte
+
+The same way how learning and the right attitude opens doors; the opposite holds true for complacency.
+
+Being complacent is like being in a rut and deciding to be there.
+
+That's why I like to advise people to live on the edge--it's the opposite of complacency, and the same as thinking on your feet.
+
+Being on the edge gives you extra energy from the adrenaline rush and heightened state of focus.
+
+If you see everyday as a challenge, you'd be surprised how efficient you can become and how much can be accomplished
+
+One of the most obvious lessons on **The Apprentice** is for the candidates to learn to think quickly. They are under a time constraint to finish their assignments, and we've noticed, it's important that they have a plan B in line. If plan A doesn't work, they're prepared for it and they won't lose much time. They are learning to think ahead and cover their bases. 
+
 # Strive for wholeness
 
 # Give your higher self a chance

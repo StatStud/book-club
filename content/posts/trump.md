@@ -36,6 +36,8 @@ cover:
 
 # What Phrase(s) can I add/validate to my mantras?
 - We don't really create, but we **assemble** what has been created for us.
+- One of the worst fears we have is the fear to attempt something. 
+- Not studying history is like being a leaf that didn't know it was part of a tree.
 
 # Barack Obama Election Ushers in a different world
 
@@ -112,11 +114,72 @@ One of the most obvious lessons on **The Apprentice** is for the candidates to l
 
 # Strive for wholeness
 
+I've encountered people who don't wonder about anything...don't let yourself fall into that category. Don't ever sell yourself short. That's bad business on every level, even the metaphysical.
+
+We've seen empires come and go, and survival of the fittest take place. Things change. We get to keep up with the changes and move forward. 
+
+As the Trump Organization has moved forward, I have seen it as a living organism that needs to be fed...I can't have any missing pieces. I can't have any ingredients that aren't the best. Those are my standards, and it's my responsibility to make sure they are kept.
+
+See yourself as an organization. Pay attention to every facet of your life. What's strong? What's weak? What's missing? What can you do to make the big picture better?
+
+Whatever you do, don't stagnate. Don't become complacent. Things move too quickly today to fall into that trap.
+
+When I realized how fast the world moves, I decided to double up on my work hours. That wasn't a big sacrifice because I love what I'm doing and I've always been a hard worker. I'm happier and more productive than I ever was.
+
+You can adapt or you can lose out. I chose to adapt.
+
+I kept the pace in order to keep up with my environment, which is a fast one. People who want to compete with me will have to keep up with me.
+
+Don't be the guy who can't adapt--even Darwin would agree.
+
+Very few of us are completed projects. It's an ongoing process.
+
+
 # Give your higher self a chance
+
+When the achiever achieves, it's not a plateau, it's a beginning.
+
+Achievers move forwards at all times. It's enthusiasm that can't be fabricated. It's either there or it's not.
+
+Achievers go for the challenge, so the next deal is what they're thinking about.
+
+They have an obligation to themselves to best themselves. That's living in the highest realm.
+
+Your higher self is in direct opposition to your comfort zone.
+
+You've heard people refer to a city as vibrant; what that means is that it's growing and lively--not stagnant. See yourself as a city.
+
+Our higher selves can serve to transport us to becoming visionaries.
+
+> One of the worst fears we have is the fear to attempt something. 
+
+You miss 100% of the shots you don't take
+
+I wasn't sure if I'd be a success on radio, but I went for it anyway, and it was a big hit. I had to take the chance first to find out.
 
 # Wisdom
 
+What I realized is that wisdom comes as a result of several factors: one being experience, and one being knowledge.
+
+It's something you can't teach someone else--you have to achieve it on your own.
+
+It's very hard for me to just give you this wisdom--you have to get there yourself.
+
+Another way to gain wisdom is to read about the greats in history and those in your specific domain.
+
+I remember realizing back in school that two things in particular seemed to shape the world as I knew it: war and nature.
+
+It's worth spending some time to know how and why we are where we are today.
+
 # The more you learn, the more you realize you don't know
+
+I see no value whatsoever in believing ignorance to be an attribute. It isn't.
+
+> Not studying history is like being a leaf that didn't know it was part of a tree.
+
+We are individually responsible for our education, and that applies whether you're in school or working.
+
+There is no ceiling to learning. You will never know it all, but it's a fantastic way of practicing longevity
 
 # Think like a champion
 

@@ -39,6 +39,7 @@ cover:
 - One of the worst fears we have is the fear to attempt something. 
 - Not studying history is like being a leaf that didn't know it was part of a tree.
 - A champion is someone who gets up when he can't.
+- No one cares about the blood, sweat, and tears that art or beauty can require. It's the end result that matters.
 
 # Barack Obama Election Ushers in a different world
 
@@ -200,9 +201,55 @@ Winning comes with responsibility, and it takes courage to willingly accept that
 
 # I view my work as an art form
 
+Artists are known for their dedication to 
+1. their ideals
+2. their muse, and 
+3. their perseverance in getting things just right. 
+Those are the admirable traits to possess.
 
+Compete with yourself to be the best version of yourself--that's the mindset of the entrepreneur.
+
+Entrepreneur know that competing with others might lower their own standards.
+
+You get to have your own vision and stick with it.
+
+Don't be afraid to be unique; it's like being afraid of your best self.
+
+> No one cares about the blood, sweat, and tears that art or beauty can require. It's the end result that matters.
+
+Art is also representational--it's not life, but it's about life.
+
+Art can point to truths that we might not notice in our busy lives. It gives us a reflection.
+
+I strive for a comprehensive approach, much as an artists would. No matter your field, you can learn a lot by emulating that approach as much as possible. 
+
+My work as a builder combines both craftsmanship and art, and I refuse to settle for less.
+
+I didn't have to use a rare marble when I built Trump Tower, but it would make a difference and I knew it.
+
+Don't sell yourself short. Life is an art, business is an art, so be an artist and best yourself.
 
 # Building connected thoughts 
+
+Comprehensive education dissolves the line between knowing too much on one subject and knowing too little on a variety of subjects.
+
+> Read: "Integrated Education", by Aldous Huxley, 1959. 
+
+In the referenced essay above, Huxley emphasized the importance of building bridges in knowledge and thought, and the word he mentions for this is **pontifex**, or bridge builder.
+
+By building these connected thoughts, we increase our learning capacity to include and connect ideas and subjects that may not specifically pertain to our area of interests, but that may serve us well to pay attention to.
+
+We all know the saying, "connect the dots". I see it as having enough knowledge to *be able* to connect the dots ina reasonable and informed way.
+
+The tunnel-visioned man I interviewed could not do this. I wasn't asking for an in-depth review of each topic presented, but an *awareness* of at least what the topic was.
+
+I've mentioned before the importance of keeping up with global events on a daily basis if you are planning to get anywhere in this world.
+
+Another tactic for being your own bridge-builder is to visualize how much time is saved when you cross a bridge, versus fording a river, or traversing a canyon.
+
+It's a safeguard for falling into a gap that might take you weeks or months to get yourself out of.
+
+
 
 # Confronting your fears
 

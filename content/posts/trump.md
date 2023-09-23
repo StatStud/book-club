@@ -38,6 +38,7 @@ cover:
 - We don't really create, but we **assemble** what has been created for us.
 - One of the worst fears we have is the fear to attempt something. 
 - Not studying history is like being a leaf that didn't know it was part of a tree.
+- A champion is someone who gets up when he can't.
 
 # Barack Obama Election Ushers in a different world
 
@@ -183,7 +184,23 @@ There is no ceiling to learning. You will never know it all, but it's a fantasti
 
 # Think like a champion
 
+What comes to mind when I see their amazing ability is the amount of training they have endured, the sacrifices they've made, and the courage they've had to have to get where they are.
+
+They also wanted to achieve something special. Ordinary wouldn't be enough for someone who was of the mindset of a champion.
+
+Champions think big.
+
+Champions are focused; they are disciplined.
+
+> A champion is someone who gets up when he can't.
+
+I've seen very talented people fail because deep down I think they were afraid of winning.
+
+Winning comes with responsibility, and it takes courage to willingly accept that responsibility.
+
 # I view my work as an art form
+
+
 
 # Building connected thoughts 
 

@@ -40,6 +40,9 @@ cover:
 - Not studying history is like being a leaf that didn't know it was part of a tree.
 - A champion is someone who gets up when he can't.
 - No one cares about the blood, sweat, and tears that art or beauty can require. It's the end result that matters.
+- This may sound simplistic, but I'm a firm believer in **visualization**, and it worked for me.
+- My advantage is my ability to get to the point faster than anybody else.
+- Look at yourself first when things go wrong.
 
 # Barack Obama Election Ushers in a different world
 
@@ -250,16 +253,73 @@ Another tactic for being your own bridge-builder is to visualize how much time i
 It's a safeguard for falling into a gap that might take you weeks or months to get yourself out of.
 
 
-
 # Confronting your fears
+
+If you label something as fear, then it creates fear when sometimes it's not fear, but a concern.
+
+Side note: How does this reconcile with the idea from "The Way of the Superior Man", when the author claims that our fears are our sharpest definitions of ourselves, and that a man who knows his fears is more trustworthy than a man who does not.
+
+It's easier to break down a concern than it is a fear, because fear will create a block that will only hinder your creative thinking. Objectivity will remove that block and allow for creative ideas to flow.
+
+An antidote to fear is simply problem solving; breaking down a task into units of thought and dealt with in an orderly manner.
+
+Know that if you want to own your own business, you will be doing a lot of work yourself. That's just the way it is.
+
+Business is not all about giving orders or having other people do the legwork or brainwork for you. True, that comes into the picture, but you should always be ready to go at it yourself.
+
+If responsibility comes naturally to you, or if you enjoy that challenge, owning your own business is a good fit.
+
+The opposite of fear is faith.
+
+Do not allow fear to settle into place in any part of your life. It is a defeating attitude and a negative emotion. Replace it with a problem-solving attitude. 
 
 # Imagination: A key to financial Savvy
 
+Donald Trump attended Wharton School of Business and studied economics for undergrad.
+
+> This may sound simplistic, but I'm a firm believer in **visualization**, and it worked for me.
+
+A lot of people have imagination, but it doesn't help them because they can't execute. I'm able to execute with the imagination.
+
 # Is business success a natural talent?
+
+Before I decided to go to Wharton School of Finance, I had thought of attending University of Southern California to study film, but once I decided on Wharton, I was very serious and focused on school.
+
+There's a certain amount of bravado in what I do these days, and part of that bravado is to make it look easy. That's why I've always referred to business as being an art.
+
+When I was in school, I always did more than was expected and studied on my own in addition to what was required.
+
+Business is about creativity. That's were the art part comes in.
 
 # Keep it short, fast, and direct
 
+Business is no place for stream of consciousness babbling, no matter how colorful you might think you're being.
+
+Whatever you're doing, keep it short, fast, and direct. It's also more polite.
+
+Practice giving your presentation in under 5 minutes.
+
+> My advantage is my ability to get to the point faster than anybody else.
+
+While they are still formulating sentences, I'v already written the book.
+
+I already had the deal done in my head.
+
+But that ability did not happen overnight, I've worked at it for a long time.
+
+But we can all put the technique to use everyday, whether it's replying to a message, writing an email, or ordering lunch.
+
+> The candidates who can present the facts with the least amount of verbal decoration will have an advantage.
+
+People appreciate brevity in today's world.
+
 # Have the right mindset for the job
+
+When I say have the right mindset, I am thinking about responsibility. People who take responsibility have no need to blame others or be continually finding fault.
+
+When faced with the question, "what are you going to do about it?", it's really a question only reserved for the people who bear the most responsibility--the ball is in their court.
+
+> Look at yourself first when things go wrong.
 
 # Momentum is something you have to work at to maintain
 

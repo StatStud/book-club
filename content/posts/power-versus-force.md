@@ -394,7 +394,69 @@ Willingness implies that one has overcome inner resistance to life and is commit
 
 ### Energy Level 350: Acceptance
 
+The level of awareness where one understands that he is both the *source* **and** *creator* of the experience of one's life.
 
+Taking such responsibility is distinctive of this degree of evolution, characterized by the capacity to live harmoniously with the forces of life.
+
+All people below level 200 tend to be powerless and see themselves as victims who are at the mercy of life, stemming from the belief or mental narrative that the source of one's happiness or the cause of one's problems is "out there". 
+
+But at level 350, an enormous jump takes place: the person takes back his power, with the realization that the source of happiness is within himself.
+
+He realizes that, in this more evolved state, nothing "out there" has the capacity to make one happy, **and love isn't something that's given or taken away by another, but created from within.**
+
+Side note: holy actual shit, I've arrived at this same damn thinking!
+
+Acceptance is different from passivity. Acceptance allows engagement in life on life's own terms, without trying to make conform to an agenda.
+
+There's an emotional calm with with acceptance, and perception is widened as denial is transcended.
+
+One now sees things without distortion or misinterpretation; one is able to see the whole picture.
+
+The individual at the level of acceptance isn't interested in determining right or wrong, but instead is dedicated to resolving issues and finding out what to do about problems. 
+
+Tough jobs don't cause discomfort or dismay. Long-term goals take precedence over short-term ones. Self-discipline and mastery are prominent.
+
+### Energy level 400: Reason
+
+Reason is capable of handling large, complex, amounts of data and making rapid, correct, decisions, and of understanding the intricacies of relationships, gradations, and fine distinctions.
+
+Expert manipulation of symbols as abstract concepts becomes increasingly important, for this is the level of science, medicine, and of generally increased capacity for conceptualization and comprehension.
+
+Knowledge and education are sought as capital, and understanding and information are the main tools of accomplishment.
+
+This is the level of Nobel Prize winners, great statesmen, and supreme court justices.
+
+Einstein, Freud, and many other greats are celebrated here.
+
+However, the shortcomings of this level involve the failure to distinguish the difference objective reality and subjective symbols that limits the understanding of causality. It becomes easy to be trapped by the theories and miss the essential point--the forest for the trees.
+
+Reason itself does not provide a guide to truth. It does produce massive amounts of information and documentation, but lacks the capacity to resolve discrepancies in data and conclusions.
+
+Reason itself, paradoxically, is the major block to reaching higher levels of consciousness.
+
+### Energy Level 500: Love
+
+What the world generally regards as love is an intense emotional condition, combining physical attraction, addition, control, eroticism, and novelty.
+
+But level 500 love is characterized by the development of a love that is unconditional, unchanging, and permanent. It doesn't fluctuate. It's source isn't dependent on external factors. Love is a state of being. It's a forgiving nature. 
+
+This love is not intellectual, nor does it proceed form the mind; this love emanates from the heart.
+
+It has the capacity to lift others up and accomplish great feats because of its purity of motive.
+
+### Energy Level 540: Joy
+
+As love becomes more and more unconditional, it begins to be experienced as inner joy. It's a constant accompaniment to all activities. This joy arises from *within* each moment of existence, rather than from any other source.
+
+This level is marked by the capacity for enormous patience and the persistence of a positive attitude in the face of prolonged adversity--with compassion as the hallmark capacity.
+
+### Energy Level 600: Peace
+
+The realization that everything is connected
+
+### Energy Level 700-1,000: Enlightenment
+
+People like Buddha, Jesus, etc.
 
 
 ## Chapter 4: Levels of Human Consciousness

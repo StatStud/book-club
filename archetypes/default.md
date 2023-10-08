@@ -20,6 +20,8 @@ cover:
 
 # What do I hope to learn AND take ACTION on after reading this book?
 
+# What brought you to reading this book? How did you hear about it?
+
 # What are my assumptions before reading this book?
 
 # Reading Comprehension questions from ChatGPT

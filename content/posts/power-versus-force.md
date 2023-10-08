@@ -28,6 +28,8 @@ cover:
 # What Phrase(s) can I add/validate to my mantras?
 - It isn't life's events, **but how one reacts to them and the attitude that one has about them**, that determines whether such events have a positive or negative effect on one's life.
 - Without the exercise of choice, no progression will occur
+- A "high" is any state of consciousness above one's customary level of awareness
+- The higher the attainment of each of these states, the greater its power to reprogram the subjects' entire life.
 
 
 # Foreword
@@ -523,6 +525,49 @@ It's important to keep in mind that the progression of the calibrated power is l
 
 
 ## Chapter 6: New Horizons in Research
+
+### Summary
+
+The common belief is that it's the substance itself to which the victim has become addicted, due to the substance's power to create a "high" state of euphoria. But this so-called "high" is merely the suppression of the lower energy fields, thereby allowing the user temporary access to higher energy levels. The suppression of lower energies doesn't *create* higher ones; it merely reveals them, briefly. It is to this experience of seeking that exposed higher level that people become addicted.
+
+### Notes
+
+#### Social Problems
+
+Drug, porn, and alcohol addition is a crucial social concern that feeds the parallel problems of crime, poverty, and welfare. 
+
+> The common belief is that it's the substance itself to which the victim has become addicted, due to the substance's power to create a "high" state of euphoria. But this so-called "high" is merely the suppression of the lower energy fields, thereby allowing the user temporary access to higher energy levels. The suppression of lower energies doesn't *create* higher ones; it merely reveals them, briefly. It is to this experience of seeking that exposed higher level that people become addicted.
+
+Side note: Wow! This is so insightful!
+
+Within the levels of consciousness, the higher frequencies are extremely powerful, and few people routinely experience them as pure states because they're masked by lower energy fields of anxiety, fear, anger, resentment, and so on. But, these states are so powerful that once they have been experienced, they are never forgotten, and therefore, are sought after again.
+
+The high state that people seek is in fact the experience field of their own consciousness (Self). 
+
+If such people are spiritually naive, they believe that experience is created from something "out there" (external things such as love, drugs, music, guru, etc.).  But all that has actually happened something "in here", within themselves.
+
+> A "high" is any state of consciousness above one's customary level of awareness
+
+For example, a person who lives in fear will find a "high" by acting through anger as a protester, because to some degree he feels in control of his situation as well. Likewise, love makes any lower state feel comparatively unattractive, while joy surpasses all lesser human emotions.
+
+The higher the attainment of each of these states, the greater its power to reprogram the subjects' entire life.
+
+Just one instant in a very high state can completely change a person's orientation to life, as well as his goals and values.
+
+Through hard-won progress on a dedicated spiritual path, this is the very mechanism of spiritual evolution.
+
+The permanent high-state experience that may be legitimately attained only through a lifetime of dedicated inner work, *can* be reached via artificial means (i.e. external substances), but only temporarily.
+
+But, the balance of nature dictates that to artificially acquire such a state, without earning it creates a debt, and the negative imbalance results in negative consequences. The cost of such stolen pleasure is the desperation of addiction, and finally, both the addict and society pay the price.
+
+Especially in modern times, with "cheap dopamine", our society idealizes pleasure, while hard work, stoicism, self-sacrifice, and restraint all take a back seat.
+
+Historically speaking, all ruling classes have achieved status and wealth by controlling society through some form of puritanical ethic. 
+
+#### Industrial and Scientific Research
+
+The kinesiology test could have been used to help Edison progress much faster to finding the right materials by simply grouping materials into groups and asking binary questions, and then further subdividing groups until the answer has been reached.
+
 
 ## Chapter 7: Everyday Critical Point Analysis
 

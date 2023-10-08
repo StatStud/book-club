@@ -27,6 +27,7 @@ cover:
 
 # What Phrase(s) can I add/validate to my mantras?
 - It isn't life's events, **but how one reacts to them and the attitude that one has about them**, that determines whether such events have a positive or negative effect on one's life.
+- Without the exercise of choice, no progression will occur
 
 
 # Foreword
@@ -274,9 +275,11 @@ The key to joy is unconditional kindness to all life, including one's own, which
 
 ## Chapter 3: Test Results and Interpretation
 
-## Summary
+### Summary
 
-## Notes
+### Notes
+
+## Chapter 4: Levels of Human Consciousness 
 
 A person's level of consciousness are always mixed; they may operate at one level in a given area of life and on quite another level in another area, but their overall level of consciousness is the sum total effect of these various levels.
 
@@ -458,10 +461,66 @@ The realization that everything is connected
 
 People like Buddha, Jesus, etc.
 
-
-## Chapter 4: Levels of Human Consciousness
-
 ## Chapter 5: Social Distribution of Consciousness Levels
+
+### Summary 
+
+Advancing one's consciousness is rare, but possible, through individual freedom of his own choice. Above all else, it will be a matter of will.
+
+### Notes
+
+A distribution of the energy levels of the world's population would resemble a pagoda roof (japanese roof with a curve; basically the author is saying that the distribution looks like a valley with two extreme peaks at the opposite ends), wherein 85% of the human race calibrates below the critical level of 200. Today, the average consciousness level stands at about 207.
+
+The power of the relatively few individuals near the top counterbalances the weakness of the masses toward the bottom to achieve this overall state.
+
+Only 4% of the world's population calibrates at a level of at least 500; 0.4% calibrates to at least 540; and only 1 in a million calibrates to 600 or higher.
+
+We must realize that much of the remainder of the world's population (particularly developing countries) primarily live in fear due to political instability, famines, diseases, natural disasters, and other chaotic events.
+
+The majority of humans spend their lives in a quest for one form of security or another.
+
+But here in the developed world, where resources are plentiful and there are a lack of natural predators, people transcend the imperative of survival and become desire-driven, and success in attaining these desires leads at best to pride.
+
+Any meaningful human satisfaction cannot even commence until the level of 250, where some degree of self-confidence begins to emerge as a basis for positive life experiences in the evolution of consciousness.
+
+#### Cultural Correlations
+
+Energy levels below 200 are most common in extremely primitive conditions, where life is only a little more than animal existence.
+
+The high 200s are represented by skilled labor, blue-collar workers, tradesmen, and industries.
+
+300s are marked by upper management, artisans, and educators.
+
+400s are the level of the awakening of the intellect. The home exhibits full bookcases to encourage mass literacy. There's an interest in more educational TV, and more sophisticated political awareness. Recreational activities take the form of chess, travel, theater, and concerts. **Education is the underpinning of this level**. Consequently, individuals tend to gather in metropolitan areas where they have access to sources of information and instruction, such as universities. Einstein, Newton, Freud, and Descartes are calibrated at 499.
+
+Just as 200 is the critical change of consciousness, so does the level 500 mark the critical change at which awareness makes another giant leap. 500s in the mark of excellence in every field of human endeavor. Altruism becomes a motivating factor, along with dedication to principles. Leadership is accepted rather than sought.
+
+And of course, those who reach even higher levels stonish their friends and families with sudden breakthroughs into new, subjective, contexts of reality. Consciousness at this level can be described as vision and may focus on uplifting society as a whole.
+
+#### Progression of Consciousness
+
+As outlined in the previous chapter, there are many levels to consciousness, however it is *uncommon* for people to move from one level to another during their lifetimes; the energy field that is calibrated at birth only increases, on average, by about 5 points. Consciousness itself evolves very slowly through innumerable generations.
+
+The majority of people utilize their life experiences to elaborate and express the **variations** of their n**ative energy field**; it's the rare individual who manages to move beyond it.
+
+What defines one's level is **motivation**; motivation proceeds from meaning, and meaning, in turn, is an expression in context. Thus, achievement is bounded by context which, when aligned with motivation, determines the individual's relative power.
+
+Unfortunately, some people's cumulative life choices many times result in a net *lowering* of their level of consciousness. It is the influence of a very few individuals of advance consciousness that counterbalances entire populations at the lower levels. And other times, the extreme negativity of a few individuals can sway entire cultures and produce a global drag on the general level of consciousness (history rhymes). Only 2.6% of the human population accounts for 72% of society's problems.
+
+Nevertheless, in spite of what the average person may achieve, it's still possible to make sudden positive jumps, leaping up even hundreds of points, if: 
+1. one can truly escape the egocentric draw of sub-200 attractor fields
+    - in my personal case, this means moving away from my negative consumption habits
+2. Consciously choosing friendly, earnest, kind, and forgiving approach to life
+3. Making charity toward others their primary focus
+
+Higher levels can certainly be attained. In practice, great **WILL** is required ("what he has above all else is **WILL**").
+
+Thus, although it is not ordinary to move out of one energy field into another during one's lifetime, the opportunity still exists. It remains for motivation to activate potential.
+
+> **Without the exercise of choice, no progression will occur.**
+
+It's important to keep in mind that the progression of the calibrated power is logarithmic; thus, individual choice can have a mighty effect. For instance, the difference between 361.0 and 361.1 is very meaningful and capable of transforming both one's life and one's effect on the world at large.
+
 
 ## Chapter 6: New Horizons in Research
 

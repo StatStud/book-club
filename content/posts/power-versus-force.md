@@ -30,6 +30,10 @@ cover:
 - Without the exercise of choice, no progression will occur
 - A "high" is any state of consciousness above one's customary level of awareness
 - The higher the attainment of each of these states, the greater its power to reprogram the subjects' entire life.
+- Appropriate use of the system will always lead to self-discovery and growth. Eventually, it can lead us to have compassion for everyone, when we see how we all must struggle with the downside of human nature.
+- Pain exists to promote evolution; its cumulative effect finally forces us in a new direction, although the mechanism may be very slow.
+- In this interconnected universe, every improvement we make in our private world improves the world at large for everyone.
+- In the process of examining our everyday lives, we can find that all of our fears have been based on falsehood.
 
 
 # Foreword
@@ -570,6 +574,64 @@ The kinesiology test could have been used to help Edison progress much faster to
 
 
 ## Chapter 7: Everyday Critical Point Analysis
+
+In regard to the kinesiology test, the calibrated power of an identified attractor is directly related to its level of truth; this means we can clearly distinguish true from false from any inquiry. This works because consciousness reacts decisively to the difference between truth and falsehood. This permits us to identify the level of truth of any statement, belief system, or body of knowledge.
+
+Like a computer, consciousness simply answers in binary true or false.
+
+
+We discover the truth about ourselves because our questions are themselves merely the reflections of our own motives, goals, and level of awareness.
+
+As you might imagine, precision in wording is of paramount importance when doing the test. Questions must be clearly and objectively defined. Before even asking the question, your first inquiry should be "I may ask this question?" (yes or no response).
+
+The author points out a variety of creative ways of using the kinesiology test in domains like:
+- Current events
+- Health research
+- Criminal investigators
+- Statistics
+- Politics
+- Commerce
+- Science and research 
+- Clinical work
+- Education 
+- Spirituality
+
+All limiting definitions create fear because they create vulnerability; our perceptions are essentially distorted by our own self-definition, which in turn is qualified by identifying with out limitations.
+
+Error occurs when we cling to the belief that "I am *that*".
+
+Truth is unveiled when we see that one *has* "that" or *does* "that", instead of *is* "that".
+
+Once fear of death is transcended, life becomes a transformed experience because that particular fear underlies all others.
+
+Few people know what it is to live without fear, but beyond fear lies joy, as the meaning and purpose of existence become transparent.
+
+Once this realization occurs, life becomes effortless and the sources of suffering dissolved; suffering is only the price we pay for our attachments.
+
+Certainly, in the realm of spirituality, there are many fake gurus, so here's how you can tell if you're dealing with a real teacher:
+
+> A universal hallmark of a true teacher is that they never control anyone's life in any way; instead, they merely explain *how* to advance one's own consciousness. It's also important to note that true teachers neither seek nor desire material gain because beyond the level 500 consciousness, possessions and worldly needs irrelevant.
+
+
+Appropriate use of the system will always lead to self-discovery and growth. Eventually, it can lead us to have compassion for everyone, when we see how we all must struggle with the downside of human nature.
+
+Everyone is crippled in some area, and each of us is somewhere on the path of evolution--some people are ahead and some people are behind.
+
+Everyone has chosen his own level of consciousness, yet nobody could have done otherwise at any given point in time; we can only get "there" from "here".
+
+Pain exists to promote evolution; its cumulative effect finally forces us in a new direction, although the mechanism may be very slow.
+
+> That which is injurious loses its capacity to harm when it's brought into the light
+
+In this interconnected universe, every improvement we make in our private world improves the world at large for everyone.
+
+Simple kindness to one's self and all that lives is the most powerful transformation force of all, for it produces no backlash, has no downside, and never leads to loss nor despair. It increases one's own true power without exacting any toll.
+
+We attract what we are.
+
+All avenues of questioning lead to the same ultimate answer: the discovery that nothing is hidden and truth stands everywhere revealed is the key to enlightenment about the simplest practical affairs and the destiny of mankind.
+
+> In the process of examining our everyday lives, we can find that all of our fears have been based on falsehood.
 
 ## Chapter 8: The Source of Power
 

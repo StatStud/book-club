@@ -40,6 +40,7 @@ cover:
 - The disillusion of emptiness comes from failing to align one's life with the principles from which power originates. Power originates from meaning that is life sustaining, appealing to what uplifts, dignifies, and ennobles.
 - Force can bring satisfaction, but only power brings joy. Victory over others brings satisfaction, but victory over *ourselves* brings us joy.
 - All great teachers, from Jesus to Buddha, have said the same thing over and over again: give up weak attractors for strong ones.
+- There are no secretes. Nothing is hidden. Our spirits stand naked in time for all to see. Everyone's life, is accountable to the universe.
 
 
 # Foreword
@@ -719,6 +720,20 @@ An ABC may either be high-energy attractor or a lower-energy one; certain meanin
 # Part 2: Work
 
 ## Chapter 9: Power Patterns in Human Attitudes
+
+A list of powerful patterns versus their equivalently weak force versions.
+
+The universe holds its breath as we choose, instant by instant (or hour-by-hour form Rollo May) which pathway to follow; for the universe the very essence of life itself is highly conscious. It's in this very sense that we each create our own heaven or hell.
+
+Everything in the universe is connected with everything else.
+
+Every act or decision we make that supports life supports *all* life, especially our own.
+
+Everything in the universe constantly gives off an energy pattern of a specific frequency that remains for all time and can be read by those who know how.
+
+Every thought is known and recorded forever. 
+
+> There are no secretes. Nothing is hidden. Our spirits stand naked in time for all to see. Everyone's life, is accountable to the universe.
 
 ## Chapter 10: Power in Politics
 

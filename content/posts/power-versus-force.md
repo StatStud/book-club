@@ -34,6 +34,12 @@ cover:
 - Pain exists to promote evolution; its cumulative effect finally forces us in a new direction, although the mechanism may be very slow.
 - In this interconnected universe, every improvement we make in our private world improves the world at large for everyone.
 - In the process of examining our everyday lives, we can find that all of our fears have been based on falsehood.
+- Power arises from *meaning*
+- Power is **always** associated with that which supports the significance of life itself; it appeals to the part of human nature which we call *nobel*.
+- That's why service is others is the pinnacle of the most fulfilling life: if our lives are dedicated to enhancing the welfare of everyone we contact, our lives can never lose meaning.
+- The disillusion of emptiness comes from failing to align one's life with the principles from which power originates. Power originates from meaning that is life sustaining, appealing to what uplifts, dignifies, and ennobles.
+- Force can bring satisfaction, but only power brings joy. Victory over others brings satisfaction, but victory over *ourselves* brings us joy.
+- All great teachers, from Jesus to Buddha, have said the same thing over and over again: give up weak attractors for strong ones.
 
 
 # Foreword
@@ -634,6 +640,81 @@ All avenues of questioning lead to the same ultimate answer: the discovery that 
 > In the process of examining our everyday lives, we can find that all of our fears have been based on falsehood.
 
 ## Chapter 8: The Source of Power
+
+The source of power for the American constitution is the claim that all men are created equal by virtue of the divinity of their creation, and human rights are intrinsic to human creation and therefore inalienable.
+
+### Summary
+
+Power arises from meaning that is life sustaining and appeals to what uplifts, dignifies, and ennobles. It is meaning, and the maps of meaning, that connect the invisible universe with the physical, observable one. 
+
+The comparison between force and power is the same with that of Scott Adams' goals versus systems; force consumes energy to reach a goal but then remain empty after achieving the goal, whereas power is continuously reaching ever-higher levels of dense inner fulfillment.
+
+
+
+### Power versus Force
+
+> Power arises from *meaning*
+
+It has to do with motive and it has to do with principle.
+
+Power is **always** associated with that which supports the significance of life itself; it appeals to the part of human nature which we call *nobel*.
+
+Force, in contrast, appeals to what we call *crass*. It is concrete, literal, and arguable. It requires proof and support.
+
+Power appeals to what uplifts, dignifies, and ennobles. 
+
+> Force must always be justified, whereas power requires no justification
+
+For example, power is meaning to do with the significance of life; health is self-evidently more important than disease, as well as how honor is preferable over dishonor and faith and trust are preferred to doubt and fear. This self-evidence is not arguable and not subject to justification. 
+
+Force always creates an equal but opposite counterforce, so its effect is limited by the laws of physics; this counterforce is polarizing, rather than unifying. This polarization always implies conflict and a win/lose dichotomy. Because somebody always loses, it creates enemies. Constantly faced with enemies, force requires defense, and this defensively is costly over the long run.
+
+Power, on the other hand, is still, much like how gravity exists to pull things.
+
+Force is always moving against something, whereas power doesn't move against anything at all.
+
+Force is incomplete and therefore has to be fed energy constantly. Power is total and complete in itself and requires nothing from outside. Power has no demands and no needs.
+
+Force consumes, whereas power energizes and gives.
+
+Power is associated with compassion and makes us feel good, whereas force is associated with judgement and makes us feel poorly about ourselves.
+
+Every civilization is characterized by native principles. If these principles are nobel, it succeeds; if they're selfish, it falls.
+
+Similar to what Scott Adams compares between goals and systems-oriented people, Force has transient goals that, when reached, inner hollowness and meaninglessness remains. Power, on the other hand, motivates us endlessly.
+
+> That's why service is others is the pinnacle of the most fulfilling life: if our lives are dedicated to enhancing the welfare of everyone we contact, our lives can never lose meaning.
+
+If the purpose of life is financial success, what happens after it has been attained? This is one of the primary causes of depression in middle-aged men and women.
+
+> The disillusion of emptiness comes from failing to align one's life with the principles from which power originates. Power originates from meaning that is life sustaining, appealing to what uplifts, dignifies, and ennobles.
+
+Alignment with that which is beautiful, nobel, and uplifting is associated with longevity and vigor, because beauty is a function of creativity.
+
+### New Paradigms
+
+Whereas much of science is based on the philosophy of real being quantifiable, the sources of power are invisible and intangible.
+
+> Force can bring satisfaction, but only power brings joy. Victory over others brings satisfaction, but victory over *ourselves* brings us joy.
+
+### Chaos Theory
+
+The study of nonlinear dynamics has verified that there really is no chaos in the universe; the appearance of disorder is merely a function of the limits of perception.
+
+We make our choices from values, and values are associated with intrinsic patterns.
+
+It's one thing to conceive of the Empire State Building; it's something else to make it happen. To make a thing happen requires motivation, and motivation is derived from meaning. Therefore, the visible and invisible worlds are linked together.
+
+![](/power-versus-force1.png)
+
+We might say that the right brain "gets the pattern" and the left brain "makes it visible".
+
+An ABC may either be high-energy attractor or a lower-energy one; certain meanings and values have greater power than others.
+
+> Simply stated, powerful attractor patterns make us go strong, and weak pattern attractors make us go weak.
+
+> All great teachers, from Jesus to Buddha, have said the same thing over and over again: give up weak attractors for strong ones.
+
 
 # Part 2: Work
 

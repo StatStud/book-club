@@ -41,6 +41,13 @@ cover:
 - Force can bring satisfaction, but only power brings joy. Victory over others brings satisfaction, but victory over *ourselves* brings us joy.
 - All great teachers, from Jesus to Buddha, have said the same thing over and over again: give up weak attractors for strong ones.
 - There are no secretes. Nothing is hidden. Our spirits stand naked in time for all to see. Everyone's life, is accountable to the universe.
+- Because somebody always loses, Force creates enemies. Constantly faced with enemies, force requires defense, and this defensive is energetically costly over the long run.
+- One characteristic of truth is that it needs no defense because it's self-evident; it requires no argument.
+- Power servers others, whereas force is self-serving.
+- Power servers others, whereas force is self-serving. Force is limited, while power is unlimited.
+- A reoccurring pattern we see is that all of these great statements echo this universal truth: **freedom, liberty, and the equality of all men by virtue of endowment by a divine higher power**.
+- It's important to remember that to violate principle for the **practical** *expediency* is to relinquish enormous power. Principle and expediency must be differentiated.
+
 
 
 # Foreword
@@ -723,6 +730,8 @@ An ABC may either be high-energy attractor or a lower-energy one; certain meanin
 
 A list of powerful patterns versus their equivalently weak force versions.
 
+From my analysis, it seems like the side of power *is*, whereas the side of force is *trying/straining/forcing* to be.
+
 The universe holds its breath as we choose, instant by instant (or hour-by-hour form Rollo May) which pathway to follow; for the universe the very essence of life itself is highly conscious. It's in this very sense that we each create our own heaven or hell.
 
 Everything in the universe is connected with everything else.
@@ -736,6 +745,54 @@ Every thought is known and recorded forever.
 > There are no secretes. Nothing is hidden. Our spirits stand naked in time for all to see. Everyone's life, is accountable to the universe.
 
 ## Chapter 10: Power in Politics
+
+Power originates from the mind, whereas force is rooted in the material world.
+
+Gandhi demonstrates massive power with rippling effects for centuries to come, not only did he bring the British Empire to its knees and declaring the independence of India, but he also ended generations of colonialism that would lay the groundwork for other countries to declare their independence too. 
+
+> How did he do this? **By simply standing for a principle**
+
+> Gandhi stood by the **principle** of the intrinsic dignity of man and his right to freedom, sovereignty, and self-determination.
+
+Gandhi believed that such rights come to man by virtue of the dignity of his creation. Gandhi believed that human rights aren't granted by any earthly power, but are ingrained in the nature of man himself because they're inherent in his creation.
+
+Gandhi's universal principle and his use of non-violence are what enabled him to rise as a lead and unite the will of the people.
+
+And when the will of people is so united by and aligned with a universal principle, it's virtually unconquerable.
+
+Adolf Hitler assembled the greatest military machine in the modern era, **yet** Hitler's use of force was no match for even a tiny English island that was powered by Churchill's power that unified the will of his people through principles of freedom and selfless sacrifice.
+
+Churchill stood for power, Hitler stood for force, in the end, England overpowered Nazi Germany.
+
+Power is immune to force when united by the will of the people.
+
+Force is loud, seductive, and glamourous, hence the weak are easily attracted by force. Power, on the other hand, is unassuming and quite often unglamorous. Force is arrogant, while power is humble.
+
+Although the intellect is easily fooled, the heart recognizes the truth. Where the intellect is intrigued by the temporary, the heart is only concerned with the permanent.
+
+> One characteristic of truth is that it needs no defense because it's self-evident; it requires no argument.
+
+Power attracts, force repels, and because power unifies, it has no true enemies.
+
+Power servers others, whereas force is self-serving. Force is limited, while power is unlimited.
+
+Churchill never needed to use force with the British people to get them on board; Gorbachev never shot a single shot when taking down the USSR; Gandhi defeated the British empire without raising a hand in anger.
+
+### Democracy and the United States of America
+
+The power of the United States arises from the **principles** upon which it is founded. The Declaration of Independence, reads as follows:
+
+"we hold these truths to to be **self-evident**, that all men are created equal, and they are endowed by their creator with certain unalienable rights, that among these are Life, Liberty, and the pursuit of happiness." (calibrated at 700).
+
+A reoccurring pattern we see is that all of these great statements echo this universal truth: **freedom, liberty, and the equality of all men by virtue of endowment by a divine higher power**.
+
+There is a clear distinction between that which is *spiritual* and that which is *religious*. 
+
+Religion is historically associated with force, whether it be past inquisitions, fire-and-brim-stone preaching, or salem witch trials.
+
+Spirituality is often associated with concepts such as loyalty, **freedom**, and peace, which don't create strife, conflict, or much less war.
+
+It's important to remember that to violate principle for the **practical** *expediency* is to relinquish enormous power. Principle and expediency must be differentiated.
 
 ## Chapter 11: Power in the Marketplace
 

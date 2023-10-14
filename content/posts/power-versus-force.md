@@ -909,6 +909,36 @@ True athletic power is characterized by grace, sensitivity, inner quiet, and par
 
 ## Chapter 13: Social Power and the Human Spirit
 
+### Summary
+
+There is power in surrendering to a higher power. 
+
+### The Power of 12-Step Programs
+
+Alcoholics anonymous is the original example of the power of principles to cure hopeless disease and change the destructive personality patterns of members.
+
+AA does this by:
+- respecting individual freedom and choice
+- Demonstrating honesty, respect, humility, service, tolerance, goodwill, and brotherhood
+- Avoids moral judgement
+- Merely says, "If you practice these principles in all of your affairs, you'll recover from this grave and progressive fatal illness, and regain your health and self-respect, and the capacity to live a fruitful life and fulfilling life for yourself and others".
+
+This represents the ideals of spirituality. Religion, on the other hand, has had the notorious history of intolerance and force in the name of "God"; excessive moralizing.
+
+
+### The History of Alcoholics Anonymous
+
+The key to the early founders in overcoming their addictions included:
+- service to others
+- moral housecleaning
+- anonymity 
+- humility 
+- surrendering to a power greater than oneself
+- overcome any denial of the issue (acceptance)
+
+These ideas were taken from the Oxford Group.
+
+
 ## Chapter 14: Chapter 14: Power in the Arts
 
 ## Chapter 15: Genius and the Power of Creativity

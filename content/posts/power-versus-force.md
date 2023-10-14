@@ -47,7 +47,14 @@ cover:
 - Power servers others, whereas force is self-serving. Force is limited, while power is unlimited.
 - A reoccurring pattern we see is that all of these great statements echo this universal truth: **freedom, liberty, and the equality of all men by virtue of endowment by a divine higher power**.
 - It's important to remember that to violate principle for the **practical** *expediency* is to relinquish enormous power. Principle and expediency must be differentiated.
-
+- Falsehood makes us go weak; acting from false positions typically results in the use of force. 
+- **Denying the basic *biological needs* and instinctual drives is futile.** Blocking normal sexual outlets merely results in the creation of *abnormal* sexual outlets. The solutions that have power are the ones realistically based at the level of acceptance (350) rather than shame (20).
+- Successful solutions are based on the **powerful principle** that resolution occurs by fostering the positive, not by attacking the negative.
+- Why humility? Because the athlete recognizes that the maximal personal effort brought them to the breakthrough point from which they were transported by a power greater than that of the individual self. They realize at that moment that their performance was not merely the result of individual effort, but of a much higher power.
+- If top performers are imbued with the belief that their excellence isn't a personal accomplishment, but a gift belonging to all of mankind as a demonstration of man's potential, they'll go strong and remain so through any event.
+- If top performers are imbued with the belief that their excellence isn't a personal accomplishment, but a gift belonging to all of mankind **as a demonstration of man's potential**, they'll go strong and remain so through any event.
+- Where higher motivations toward excellence give access to the realm of grace and power, self-centered motivations of personal gain draw one almost magnetically into the realm of force.
+- It's an honoring of human achievement that transcends personal pride. We honor the endeavor, no the personal accomplishment, which is only the occasion and expression of something greater, universal, and innate in the human heart.
 
 
 # Foreword
@@ -810,12 +817,95 @@ This is how the Roman Empire fell. People from within choosing low energy attrac
 
 ### Efficiency can be Expensive
 
+### Summary
+
+Much of this section focuses on how differently power and force use problem solving. Force attempts a moralistic, aggressive, and extensive approach that focuses on actively attacking the manifested symptoms; power accepts human nature, that we all fall short of perfection, and seeks to maximize support for a solution to the root issue, rather than attacking symptoms.
+
+### Notes
+
 To be a success, it's necessary to embrace and operate from the principles that produce success; to really do what the best do, it's necessary *to be like they are*.
 
 Companies that try to copy great companies in hopes of regaining their market share fail in doing so because they merely initiated the A->B->C sequence *instead of* aligning with the ABC from which those features emanated.
 
+The book, "In Search of Excellence", by Thomas Peter and Robert Waterman, analyzed successful businesses and found that successful companies were those that had "heart", as opposed to strictly left-brain, mechanically managed companies.
+
+One basic principle has the power to resolve problems of the social market place: **support the solution instead of attacking the supposed causes**.
+
+Attack is in itself inherently a very weak attractor pattern (calibrated at 150), leading through fear to intimidation. 
+
+Objective examination reveals that most intractable "social problems" *appear* unsolvable due to the persistence of both either (1) sentimentality (2) juvenile moralizing. But neither of these positions are based in **truth**, which means that all approaches proceeding from them are weak.
+
+Falsehood makes us go weak; acting from false positions typically results in the use of force. 
+
+Force is the universal substitute for truth.
+
+Guns and other weapons are evidence of weakness. The need to control others stems from lack of power, just as vanity stems from lack of self-esteem.
+
+Punishment is a form of violence, an ineffectual substitute for power. Punishment is based on revenge, which is calibrated at 150. 
+
+Supporting the solution to human needs, on the other hand, creates a no-cost resolution that brings serenity and equanimity, but *attacking* the artificially created "problem" is always expensive. 
+
+Only the childish proceed from the assumption that the human behavior can be explained in black-and-white terms. 
+
+**Denying the basic *biological needs* and instinctual drives is futile.** Blocking normal sexual outlets merely results in the creation of *abnormal* sexual outlets. The solutions that have power are the ones realistically based at the level of acceptance (350) rather than shame (20).
+
+The American drug issue is another example. The mistake is in looking at the problem moralistically and acting out of force and condemnation (150) in a punishing role.
+
+Successful solutions are based on the powerful principle that resolution occurs by fostering the positive, not by attacking the negative.
+
+Recovery from alcoholism or porn can't be accomplished by *fighting* intoxication or lust; but rather by *choosing* sobriety and connection.
 
 ## Chapter 12: Power and Sports
+
+Sports figures symbolize the possibilities of excellence for all of us; and at the level of the champion, they represent mastery.
+
+Certainly there's a level of pride and and competition that excites the crowd in the beginning, but the greater emotions are those of respect and awe elicited by a display of athletic excellence. 
+
+> Specifically, what animates the crowd is an **intuitive recognition** of the heroic striving required to **overcome human limitation** and achieve new levels of prowess.
+
+The French Film, "The Big Blue" calibrates at energy level 700 (universal truth), and thus has the capacity to put viewers into a high state of consciousness.
+
+The main character is able to maintain his state of intense concentration through a constant meditative condition, similar to how long-distance runners experience the "runner's high". He becomes enabled to achieve great feats of performance through an altered physiology.
+
+May try to beat Mayol's record, but all fail and one dies all because they hadn't reached the level of consciousness required to transcend the normal limits of the body.
+
+Alignment with these high-power attractor patterns isn't limited to the exercise of the discipline itself but becomes an entire lifestyle.
+
+Thus, when the power of the principle is transferred to the practitioner, the results begin to be manifested everywhere in his life.
+
+And as we see with power, the hallmark of true greatness in athletic achievement is always humility. 
+
+> Why humility? Because the athlete recognizes that the maximal personal effort brought them to the breakthrough point from which they were transported by a power greater than that of the individual self. They realize at that moment that their performance was not merely the result of individual effort, but of a much higher power.
+
+"For it wasn't my desire to get good grades that gave me the passion to become salutatorian. Rather, it was my **FAITH**. My faith in what? My faith in **GOD** that encouraged me to do something great with this rank".
+
+WOW! Talk about goosebumps! This is something else!
+
+Pride, which calibrates lower than courage and therefore makes men weak, can be the downfall of many great athletes. If we ask a powerful athlete to hold in mind the hope of defeating his opponent, or becoming a star, or making a lot of money, we'll see that he goes weak and we can put down his trained, muscular arms with minimal effort.
+
+But the same athlete holding in mind the honor of his country or his sport, **the dedication of his performance to someone he loves**, or even the sheer joy of maximum effort for the sake excellence, goes powerfully strong, and we cannot push down his arms even with great force.
+
+Side note: does this mean I need to update my vision? If my vision includes lots of fancy cars, big houses, and hot girls, then maybe I have the wrong vision? How can I know? How can I apply the kinesiology test to find out?
+
+This means that the athlete who is motivated by pride, greed, or defeating his opponent, will go weak at the moment of of the starting gun and be unable to achieve maximum continued effort necessary for great achievements.
+
+Side note: Think about when I broke the 3200m record; it was on a way where I was not concerned about the competition, in fact I did not care too much, and I was focused on school right before then. Meanwhile, on big events where the stakes are higher, like districts or states, I often found myself focusing on the wrong things, and not performing as well. This could be why some people read scripture, or pray before a big event, because they are absorbing content that is calibrated at higher energy levels. **This literally gives them strength.** But statements like "If God is for us, then who is against us?" is prideful, and makes us go weak. **THINK ABOUT IT**. You made the most progress when you were focused on delivering a God-given message *for* others, on *behalf* of God. But in the last semester, when you were stressed about your competitors, and you were focused on *beating* your enemies, you fell short. **THINK ABOUT IT**!
+
+> If top performers are imbued with the belief that their excellence isn't a personal accomplishment, but a gift belonging to all of mankind **as a demonstration of man's potential**, they'll go strong and remain so through any event.
+
+WOW. Speechless.
+
+The energy level 200 is when selfishness turns into selflessness. 
+
+Where higher motivations toward excellence give access to the realm of grace and power, self-centered motivations of personal gain draw one almost magnetically into the realm of force.
+
+It's an honoring of human achievement that transcends personal pride. We honor the endeavor, no the personal accomplishment, which is only the occasion and expression of something greater, universal, and innate in the human heart.
+
+Humility and gratitude seem to be the only effective shields against the onslaught of media exploitation.
+
+Top athletes employ specific exercises to overcome any tendency toward egoism. 
+
+True athletic power is characterized by grace, sensitivity, inner quiet, and paradoxically, gentleness in the noncompetitive life of even fierce competitors.
 
 ## Chapter 13: Social Power and the Human Spirit
 

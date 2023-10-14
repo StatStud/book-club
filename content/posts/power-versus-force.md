@@ -55,6 +55,7 @@ cover:
 - If top performers are imbued with the belief that their excellence isn't a personal accomplishment, but a gift belonging to all of mankind **as a demonstration of man's potential**, they'll go strong and remain so through any event.
 - Where higher motivations toward excellence give access to the realm of grace and power, self-centered motivations of personal gain draw one almost magnetically into the realm of force.
 - It's an honoring of human achievement that transcends personal pride. We honor the endeavor, no the personal accomplishment, which is only the occasion and expression of something greater, universal, and innate in the human heart.
+- Grace is the expression of the power of aesthetic sensitivity, and power is always manifested with grace, whether in beauty of line, style, or expression. We associate grace with elegance, refinement, and economy of effort. Gracious power patterns acknowledge and support life, and respect and uphold the dignity of others.
 
 
 # Foreword
@@ -938,8 +939,23 @@ The key to the early founders in overcoming their addictions included:
 
 These ideas were taken from the Oxford Group.
 
-
 ## Chapter 14: Chapter 14: Power in the Arts
+
+### Summary
+
+Beauty and presentation matters. Similar to how Jordan Peterson emphasizes the collection of art, we too should practice cultivating the elegance and refinement of beauty in all of our activities.
+
+### Notes
+
+In beholding realized beauty, a sensitivity to the beautiful is implanted in us, enabling us to discover, and create, our own asthenic rewards in the apparently disordered jumble of existence. 
+
+Older cultures seem to have always understood the **practicality** of beauty.
+
+An architecturally ugly neighborhood becomes part of a feedback loop of blight and violence; the sleazy, dehumanized housing projects of urban ghettos manifest their weak patterns in squalor and crime.
+
+> Grace is the expression of the power of aesthetic sensitivity, and power is always manifested with grace, whether in beauty of line, style, or expression. We associate grace with elegance, refinement, and economy of effort. Gracious power patterns acknowledge and support life, and respect and uphold the dignity of others.
+
+It's interesting to see that people of advance consciousness are able to see beauty in all forms. To them, not only is all of life sacred, but all form is beauty.
 
 ## Chapter 15: Genius and the Power of Creativity
 

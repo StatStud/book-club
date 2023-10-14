@@ -810,6 +810,9 @@ This is how the Roman Empire fell. People from within choosing low energy attrac
 
 ### Efficiency can be Expensive
 
+To be a success, it's necessary to embrace and operate from the principles that produce success; to really do what the best do, it's necessary *to be like they are*.
+
+Companies that try to copy great companies in hopes of regaining their market share fail in doing so because they merely initiated the A->B->C sequence *instead of* aligning with the ABC from which those features emanated.
 
 
 ## Chapter 12: Power and Sports

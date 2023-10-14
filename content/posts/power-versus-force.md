@@ -746,6 +746,12 @@ Every thought is known and recorded forever.
 
 ## Chapter 10: Power in Politics
 
+### Summary
+
+Principles, meaning, values--all of these matter! Just like what Ray Dalio writes about. These principles are self-evident; they don't need justification because they are aligned with values that support and sustain life.
+
+### Notes
+
 Power originates from the mind, whereas force is rooted in the material world.
 
 Gandhi demonstrates massive power with rippling effects for centuries to come, not only did he bring the British Empire to its knees and declaring the independence of India, but he also ended generations of colonialism that would lay the groundwork for other countries to declare their independence too. 
@@ -795,6 +801,16 @@ Spirituality is often associated with concepts such as loyalty, **freedom**, and
 It's important to remember that to violate principle for the **practical** *expediency* is to relinquish enormous power. Principle and expediency must be differentiated.
 
 ## Chapter 11: Power in the Marketplace
+
+The ultimate choice man can make is whether to align with a higher-energy attractor field or a low energy field.
+
+The same weak attractor patterns that have brought down governments, social movements, and entire civilizations routinely destroy organizations and careers as well.
+
+This is how the Roman Empire fell. People from within choosing low energy attractors.
+
+### Efficiency can be Expensive
+
+
 
 ## Chapter 12: Power and Sports
 

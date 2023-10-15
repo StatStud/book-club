@@ -1078,6 +1078,7 @@ All that's really necessary is to expose oneself to a higher energy field and on
 
 It's no coincidence, then, that this grouping of people is the basis for a lot of self-help groups; it's reflected in the saying, "just bring the body to the meeting". Think osmosis.
 
+Traditional medicines generally hold that stress is the cause of many human disorders and illnesses. Indeed, this is a mention in several books. In Rollo May's "Man's search for himself", May writes, "Most patients in hospitals suffer as a result of anxious tendencies–this is nature’s way of saying we’re not living towards our unique potentialities.". Moreover, in the book, "The Magic of Thinking Big", David J. Schwartz mentions the book "How To Live 365 Days A Year" by John A. Schindler MD, in which Schindler also notes that many patients in hospital beds are there simply due to unnecessary mental worry, anxiety, and stress. 
 
 
 ## Chapter 18: Wellness and the Disease Process

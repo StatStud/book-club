@@ -1052,9 +1052,33 @@ People who are loving, kind, and considerate of others have more friends than th
 
 Side note: Reminds me of Catherine W. As much resentment I had when I was younger, I admit that she simply had the right mindset.
 
-
-
 ## Chapter 17: Physical Health and Power
+
+We become healthy and wealthy by being wise, and wisdom is the result of aligning with high-power attractor patterns (or as Naval Ravikant would put it, knowing the long-term consequences on your actions).
+
+It's equally important to realize that attractors create context. This means the one's motive, derived from his principles that he chooses to commit to, determines one's capacity to understand and, therefore give significance (or **meaning**) to one's actions. (This is super related to what [Jordan Peterson talks about](https://practicalityandsimplicity.com/posts/attitude/#jordan-petersons-verdict) on the significance on having the right attitude towards life.)
+
+The effect of alignment with principle is never more striking than in its physiological consequences. Vibrant health, for example, follows alignment with high-energy attractor patterns. This is because the human central nervous system clearly has an exquisitely sensitive capacity to differentiate between life-supportive and life-destructive patterns.
+
+High-power attractor patterns, which make the body go strong, release brain endorphins and have a tonic effect on all of the organs, whereas adverse stimuli release adrenaline, which suppresses immune response and instantaneously causes both weakness and even breakdown of specific organ, depending on the nature of the stimulus.
+
+Unless the basic attitude that's *causing* the energy imbalance is corrected, the illness tends to persist.
+
+It's no wonder how many cured problems come as a result of adopting attitudes correlated with high-energy attractor patterns (that is, spiritual practices).
+
+Generally speaking, physical and mental soundness are attendant upon positive attitudes, whereas poor physical and mental health are associated with with such negative attitudes as resentment, jealousy, hostility, self-pity, fear, anxiety, and the like.
+
+In the field of psychoanalysis, positive attitudes are called welfare emotions, while negative ones are called emergency emotions. The chronic immersion in energy emotions results in ill health and gross weakening of one's personal power.
+
+So here's the million-dollar question:  ***how* does one overcome negative attitudes so as to avoid this deterioration of power?**
+
+The answer is **simple**: The individual must make a decision--a **choice**--: A sincere and earnest **desire** for change allows one to seek higher attractor energy patterns. 
+
+All that's really necessary is to expose oneself to a higher energy field and one's inner attitudes will spontaneously begin to change. You are the average of the 5 closest people to you.
+
+It's no coincidence, then, that this grouping of people is the basis for a lot of self-help groups; it's reflected in the saying, "just bring the body to the meeting". Think osmosis.
+
+
 
 ## Chapter 18: Wellness and the Disease Process
 

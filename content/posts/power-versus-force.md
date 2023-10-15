@@ -56,6 +56,12 @@ cover:
 - Where higher motivations toward excellence give access to the realm of grace and power, self-centered motivations of personal gain draw one almost magnetically into the realm of force.
 - It's an honoring of human achievement that transcends personal pride. We honor the endeavor, no the personal accomplishment, which is only the occasion and expression of something greater, universal, and innate in the human heart.
 - Grace is the expression of the power of aesthetic sensitivity, and power is always manifested with grace, whether in beauty of line, style, or expression. We associate grace with elegance, refinement, and economy of effort. Gracious power patterns acknowledge and support life, and respect and uphold the dignity of others.
+- A universal characteristic of genius humility.
+- The process of animating genius most commonly involves first formulating a question.
+- Consciousness, like physicality, is a universal quality; because genius is a characteristic of consciousness, genius is also universal. It follows that which is universal is available to each and every person.
+- Genius and creativity then are subjectively experienced as a nonjudgmental witnessing
+- A formula followed by all geniuses: **do what you like to do best, and do it to the very best of your ability**
+
 
 
 # Foreword
@@ -958,6 +964,59 @@ An architecturally ugly neighborhood becomes part of a feedback loop of blight a
 It's interesting to see that people of advance consciousness are able to see beauty in all forms. To them, not only is all of life sacred, but all form is beauty.
 
 ## Chapter 15: Genius and the Power of Creativity
+
+### Summary
+
+Much of this can be summarized by Einstein's quote: "Genius is 1 percent talent and 99 percent hard work."
+
+Each of us has the capacity to become geniuses. To become a genius, **do what you like to do best, and do it to the very best of your ability**.
+
+### Notes
+
+Creativity and genius are at the center of high-energy attractors. 
+
+Much of human history is the record of man's struggle to comprehend truths that have been appeared obvious to those of genius.
+
+> A universal characteristic of genius humility.
+
+After all, those in whom we recognize genius commonly disclaim it, as they've always attributed their insights to some higher influence.
+
+> The process of animating genius most commonly involves first formulating a question.
+
+Then waiting an indefinite interval for consciousness to work with the problem. Until suddenly, the answer appears in a flash, in a form that's characteristically nonverbal.
+
+Everything is connected to everything else; no one is excluded from the universe--we're all members.
+
+> Consciousness, like physicality, is a universal quality; because genius is a characteristic of consciousness, genius is also universal. It follows that which is universal is available to each and every person.
+
+Genius is often expressed through a change of perception. The mind struggles with an unsolvable problem, poses a question, and is open to receive an answer. Those who are humble and grateful for illumination received tend to continue to have the capacity to access genius. Conversely, those who credit the inspiration to their own ego soon lose this capacity, or are destroyed by their success.
+
+High power, like high voltage, must be handled with respect.
+
+> Genius and creativity then are subjectively experienced as a nonjudgmental witnessing
+
+- Out of struggle comes victory 
+- Out of failure comes success
+- Out of humbling comes true self-esteem
+
+Genius is characterized by an appreciation for resources and the economy of ingenuity, because the genius values life and sees the intrinsic worth of all of its expressions. Often, geniuses are seldom interested in money or fame, and they prefer a modest/simple lifestyle.
+
+Since time and resources are considered previous, doing more than is necessary is viewed as waste; therefore, people of genius often lead very quiet lives and usually only come forth, very reluctantly, when there's a cause that must be supported.
+
+Because they are in touch with an endless source of supply, geniuses experience only a minimum of want, for there's no need to "get" what you already "have".
+
+The basis of all of these tendencies is rooted in a radical understanding of the nature of the universe itself: **that which supports life is supported by life**.
+
+Survival for geniuses is thus effortless, and giving and receiving are one and the same.
+
+A primary reason that so many people fail to recognize, and therefore empower, their own geniuses is because in the popular mind, genius is confused with a high IQ, which is a gross misunderstanding.
+
+Geniuses can be more accurately identified by perseverance, courage, concentration, enormous drive, and absolute integrity--talent alone is certainly not enough.
+
+Dedication of an unusual degree is required to achieve mastery, and in the simplest definition, one could say that genius is the capacity for an extraordinary degree of mastery in one's calling.
+
+> A formula followed by all geniuses: **do what you like to do best, and do it to the very best of your ability**
+
 
 ## Chapter 16: Surviving Success
 

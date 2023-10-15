@@ -61,6 +61,11 @@ cover:
 - Consciousness, like physicality, is a universal quality; because genius is a characteristic of consciousness, genius is also universal. It follows that which is universal is available to each and every person.
 - Genius and creativity then are subjectively experienced as a nonjudgmental witnessing
 - A formula followed by all geniuses: **do what you like to do best, and do it to the very best of your ability**
+- Why are the truly successful so humble. Because they realize that, deep down, they're channels/vessels acted through to create success in the outer world. The source of success is "in here", not "out there".
+- By believing that the source of power lies outside oneself, one becomes powerless and vulnerable and, therefore, defensive and possessive.
+- True success originates from within, independent of external circumstances.
+- There are very few at the top; the world  of the mediocre, however, is one of intense competition, and the bottom of the pyramid is crowded.
+- People who are loving, kind, and considerate of others have more friends than they can count; accomplishment in **every area** of life is reflected back to those who are aligned with successful patterns.
 
 
 
@@ -1017,8 +1022,37 @@ Dedication of an unusual degree is required to achieve mastery, and in the simpl
 
 > A formula followed by all geniuses: **do what you like to do best, and do it to the very best of your ability**
 
-
 ## Chapter 16: Surviving Success
+
+True success enlivens and supports the spirit; it has nothing to do with isolated achievements, but instead relates to being accomplished as a total person, and attaining a lifestyle that benefits not only the individual, but everyone around them. Truly successful people's lives are empowered by the context of their accomplishments.
+
+However, with great power comes great responsibility. There are certainly geniuses who have fallen due to success, which weakens their relationships and hurts their health.
+
+It isn't that such people have acquired too much wealth, fame, or attention; it's that these influences distorted their egos and reinforced what might be called the small self instead of the big self.
+
+For context, the small-self is the human-nature part of us that's vulnerable to flattery; the big-self is an aspect of our more evolved nature, which is more humble and grateful for success.
+
+When we come to know the power figures of the world, it's striking to see how many are open, warm, and sincere, and view success as a responsibility. These are real successful people, and they actively work to treat all people as equal.
+
+> Why are the truly successful so humble. Because they realize that, deep down, they're channels/vessels acted through to create success in the outer world.
+
+As much as they identify with success, they have no anxiety about losing it, for solid confidence comes from the knowledge that the source of success is "in here".
+
+> By believing that the source of power lies outside oneself, one becomes powerless and vulnerable and, therefore, defensive and possessive.
+
+True success originates from within, independent of external circumstances.
+
+Success comes as the automatic consequence of aligning one's life with high-power energy patterns.
+
+> There are very few at the top; the world  of the mediocre, however, is one of intense competition, and the bottom of the pyramid is crowded.
+
+Charismatic winners are sought out; losers have to strive to be accepted.
+
+People who are loving, kind, and considerate of others have more friends than they can count; accomplishment in **every area** of life is reflected back to those who are aligned with successful patterns.
+
+Side note: Reminds me of Catherine W. As much resentment I had when I was younger, I admit that she simply had the right mindset.
+
+
 
 ## Chapter 17: Physical Health and Power
 

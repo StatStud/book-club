@@ -73,6 +73,7 @@ cover:
 - So here's the million-dollar question:  ***how* does one overcome negative attitudes so as to avoid this deterioration of power?** The answer is **simple**: The individual must make a decision--a **choice**--: A sincere and *earnest* **desire** for change allows one to seek higher attractor energy patterns.
 - "just bring the body to the meeting"; even if you're not in the right attitude, taking the right action (by doing good work, being in the company of high energy people, etc) will get you there. Actively patient.
 - The connection between the mind and body is immediate, so the body's responses shift and change from instant to instant **in response to** one's train of thought and associated emotions.
+- If this schema of disease formation is correct, then all illnesses should be **reversible** by changing **thought patterns** and habitual responses. 
 
 
 
@@ -1117,6 +1118,13 @@ Our capacity to **understand**, **forgive**, and **accept** is directly linked t
 
 ## Chapter 18: Wellness and the Disease Process
 
+### Summary
+
+Our fate is determined by these small, iterative, hour-to-hour changes that **WE CHOOSE**. This means if you choose inherently good, constructive, tiny choices, then overtime, you will exponentially live a life that is good, constructive, and fulfilling. The opposite holds true.
+
+All illnesses should be **reversible** by changing **thought patterns** and habitual responses.
+
+### Notes
 Emotions influence your health. Period.
 
 Emotions affect hormonal change (example, when I was once stressed, my hair became greasy).
@@ -1142,6 +1150,22 @@ So in the context of the mind and body, this turbulance of emotion may result in
 > The invisible universe of thought and attitude becomes visible as a consequence of the body's habitual response
 
 It's the **persistence** and repetition of the stimulus that, through the law of sensitive dependencies on initial conditions, results in the observable disease process.
+
+Bear in mind, the stimulus that sets off the process may be so minute that it escapes detection itself.
+
+> If this schema of disease formation is correct, then all illnesses should be **reversible** by changing **thought patterns** and habitual responses. 
+
+No recovery can take place until the subject experiences an essential change of personality--a profound transformation in his total **belief system** followed by a *sudden* leap in consciousness.
+
+A prime difficulty with thoughts and behaviors associated with the energy fields below 200 is that they cause **counterreactions** (as is the case with any means of force).
+
+> All attacks, whether mental or physical, result in a counterattack.
+
+Humor is important in life. Trust.
+
+Relatively few people are committed to peace because in their heart and actions, they prefer to be "right" at whatever cost.
+
+A self-justified personality is the real enemy of peace.
 
 # Part 3: Meaning
 

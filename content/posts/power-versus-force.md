@@ -74,6 +74,8 @@ cover:
 - "just bring the body to the meeting"; even if you're not in the right attitude, taking the right action (by doing good work, being in the company of high energy people, etc) will get you there. Actively patient.
 - The connection between the mind and body is immediate, so the body's responses shift and change from instant to instant **in response to** one's train of thought and associated emotions.
 - If this schema of disease formation is correct, then all illnesses should be **reversible** by changing **thought patterns** and habitual responses. 
+- Innumerable options are open to everyone all the time, but they're relatively infrequently **chosen**. Why? Because people want the context that would make such options attractive. Suffice it to say, **one's range of choice is ordinarily limited only by one's vision**
+- The **most important** element in facilitating an upward movement in consciousness is an **attitude of willingness**, which opens up the mind through new means of appraisal to the possible validity of new hypotheses. These motives for change often arise when the mind is challenged in the face of a puzzle or paradox; some disciplines (i.e. Zen) **deliberately** create challenges to finesse a new leap of awareness.
 
 
 
@@ -1199,6 +1201,26 @@ All the rest are semi-facts spawned from the artifacts of limited perception and
 
 
 ## Chapter 20: The Evolution of Consciousness
+
+It seems that society institutionalizes certain self-propagating levels of consciousness that consequently become an ingrained characteristic of various social strata.
+
+Nevertheless, there remains **free choice** and therefore considerable potential for individual mobility and variety of experience.
+
+So here's the billion-dollar question: how *exactly* do transformational choices occur? What leads to them? Who makes them and why?
+
+> Growth and development are irregular and nonlinear.
+
+As is commonly observed, growth can take place either slowly or suddenly; it isn't limited by restraints but by *tendencies* (habits).
+
+> Innumerable options are open to everyone all the time, but they're relatively infrequently **chosen**. Why? Because people want the context that would make such options attractive. Suffice it to say, **one's range of choice is ordinarily limited only by one's vision**
+
+side note: WOW! This leads me to think that when I pray, I should not be asking for things, but rather an enhanced vision and the opportunity to recognize opportunities as they come to me; so that in their recognition, I can take action through the enhanced vision.
+
+Context, value, and meaning are merely different terms for a subtle web of energy patterns within an overall organizing attractor energy field.
+
+> The **most important** element in facilitating an upward movement in consciousness is an **attitude of willingness**, which opens up the mind through new means of appraisal to the possible validity of new hypotheses.
+
+These motives for change often arise when the mind is challenged in the face of a puzzle or paradox; some disciplines (i.e. Zen) **deliberately** create challenges to finesse a new leap of awareness.
 
 ## Chapter 21: The Study of Pure Consciousness
 

@@ -1171,6 +1171,33 @@ A self-justified personality is the real enemy of peace.
 
 ## Chapter 19: The Database of Consciousness
 
+### Summary
+
+There is no expanded universe, there is only the progression of consciousness.
+
+### Notes
+Most people are preoccupied with converting the invisible ABC into the sensorially perceptible A->B->C. 
+
+Extraordinary individuals primarily live in the ABC world. These people are uninterested in the process of making things visible and manifest; they are the creative people who spawn new enterprises and then turn over their execution and management to others.
+
+Mystics live in the world beyond the ABC (the completely abstract and formless domain of pure consciousness itself). Mystics believe that only *their* ABC level of awareness is "real" and the observable world is merely an illusion. Keep in mind, this is still a limited perspective. There is neither real nor nonreal, only that which *is*.
+
+There is no expanded universe, there is only the progression of consciousness.
+
+> Existence is a statement that awareness is aware of its awareness and of its expression of consciousness.
+
+Anyone who's aware that he exists already has access to its highest formulations beyond.
+
+> There is only one absolute truth.
+
+All the rest are semi-facts spawned from the artifacts of limited perception and positionality.
+
+> "To be or not to be" isn't a *choice*; one may decide to be this or that, but to *be* is the only fact there is.
+
+
+> There is, ultimately, neither duality nor nonduality; there's only awareness.
+
+
 ## Chapter 20: The Evolution of Consciousness
 
 ## Chapter 21: The Study of Pure Consciousness

@@ -76,7 +76,14 @@ cover:
 - If this schema of disease formation is correct, then all illnesses should be **reversible** by changing **thought patterns** and habitual responses. 
 - Innumerable options are open to everyone all the time, but they're relatively infrequently **chosen**. Why? Because people want the context that would make such options attractive. Suffice it to say, **one's range of choice is ordinarily limited only by one's vision**
 - The **most important** element in facilitating an upward movement in consciousness is an **attitude of willingness**, which opens up the mind through new means of appraisal to the possible validity of new hypotheses. These motives for change often arise when the mind is challenged in the face of a puzzle or paradox; some disciplines (i.e. Zen) **deliberately** create challenges to finesse a new leap of awareness.
-
+- There are no 'justified resentments'. Even if someone did you 'wrong', you're still free to choose your response and let resentment go
+- Once one makes a commitment to love, nonjudgmental forgiveness, and unconditional compassion, he begins to experience a different, more benign world **as his perception evolves**
+- Attitudes can alter the world one experiences, and like a hologram, what you see depends completely on the position that you view it from.
+- External events may be defined by conditions, but they don't determine the consciousness level from which we perceive them--that perception is dependent on the inside.
+- How we react depends upon the world we're reacting to. Who we become, as well as what we see, is determined by our **perception**
+- Power and perception go hand-in-hand
+- Thoughts really belong to the consciousness of the world; the individual merely processes them in new combinations and permutations.
+- It's *consciousness itself* that that resonates as both awareness and experiencing, and both are *purely subjective*
 
 
 # Foreword
@@ -1222,7 +1229,100 @@ Context, value, and meaning are merely different terms for a subtle web of energ
 
 These motives for change often arise when the mind is challenged in the face of a puzzle or paradox; some disciplines (i.e. Zen) **deliberately** create challenges to finesse a new leap of awareness.
 
+Here are two main critical points in the levels of consciousness that permit substantial advancement:
+1. Level 200: The initial level of empowerment; the voluntary choice and willingness to stop blaming and accept responsibility for one's own actions, feelings, and beliefs
+2. Level 500: After accepting love and nonjudgmental forgiveness as a lifestyle, exercising **unconditional** kindness to all persons, things, and events, **without exception**
+    - This includes extending help to a man in need, the same way I would help if it were a woman asking for help
+    - **Once one makes this commitment, he begins to experience a different, more benign world as his perception evolves**
+
+> There are no 'justified resentments'. Even if someone did you 'wrong', you're still free to choose your response and let resentment go
+
+### Holograms and Perceptions
+
+> Attitudes can alter the world one experiences 
+
+Like a hologram, what you see depends completely on the position that you view it from.
+
+This begs the question: what position represents 'reality'?
+
+Certainly, CBT and other philosophies emphasize how the world is a set of mirrors that reflect back your attitude; I wish to further extend this by saying that it's *more precisely* a set of holograms in limitless dimensions that seem to be fixed in time and place and offer only a single reflection.
+
+Viewing the world as a set of unlimited holograms, we realize that the process of change seems to move through time, but if time itself is transcended, **then there's no such thing as a sequence**.
+
+If all is now, there's nothing to follow from here to there. Each hologram is in itself an evolutionary projection from an endless nonlinear matrix of events that aren't causally related, but instead **synchronous**.
+
+> External events may be defined by conditions, but they don't determine the consciousness level from which we perceive them--that perception is dependent on the inside.
+
+Moreover,
+
+> How we react depends upon the world we're reacting to. Who we become, as well as what we see, is determined by our **perception**. 
+
+And because we're all connected, the sum of everyone's perception creates the world we live in. That's why you matter.
+
+The further down the scale of consciousness someone is, the harder it is for them to maintain eye contact. Per contra, as we go up in levels, the ability to hold prolonged eye contact is almost endless; gazes at the great depth becomes characteristic.
+
+> Power and perception go hand-in-hand
+
+### The Mechanisms of Perception
+
+### Summary
+
+Thoughts really belong to the consciousness of the world; the individual merely processes them in new combinations and permutations. Even the few geniuses of the world who contribute original thoughts humbly claim that such thoughts were never self-created, but rather gifted, found, given, or discovered.
+
+### Notes
+
+Causality stems from the attractor patterns of levels of energy, the ABCs of the configurations of our mind that are illuminated by consciousness.
+
+Our thoughts are all choices, beliefs, and goals of our own choosing--it's 100% voluntary what we choose to implant in our minds.
+
+> By consciousness, we synchronize with a field pattern that implies specific styles of processing and influences all of our decisions according to it's corresponding set of values and meaning.
+
+> In the final analysis: the more detailed one's analysis of the structure of "out there" is, the more one discovers that what one is examining is, in fact, the nature of the intricate processes of consciousness in here.
+
+There's nothing "out there" other than consciousness itself. The habitual tendency to believe otherwise is our fundamental illusion--a vanity of the human mind, which tends to view its own transitory subject as "mine".
+
+> Thoughts really belong to the consciousness of the world; the individual merely processes them in new combinations and permutations.
+
+Even the few geniuses of the world who contribute original thoughts humbly claim that such thoughts were never self-created, but rather gifted, found, given, or discovered.
+
+But even then, we're still human. Like how two snowflakes are never identical, yet they are still both snowflakes at the end of the day.
+
+To transcend the limitations of the mind, it's necessary to dethrone it from its vanity; the mind's very nature is to convince us that its unique view of experience is the genuine article. It's no wonder that each individual secretly feels that *his* particular experience of the world is accurate. Pride is below the 200 level calibration, and the cost of pride is denial.
+
+Every mind engages in denial in order to protect its need to be right (its ego). This is similar to what David J. Lieberman writes in his book, "[Never get angry again](https://bookswithalex.com/posts/never-get-angry-again/#right-to-the-end)", and it also relates to the CBT perspective on how our dominating core beliefs drive our actions.
+
+> Great leaps in level of consciousness are always proceeded by surrender of the illusion "I know"
+
+Light can't enter a closed box. 
+
+If life is viewed as a teacher, then it becomes just that. But unless we become humble and transform them into gateways to growth and development, the painful life lessons that we deal ourselves are wasted.
+
+The major limitation of consciousness is innocence, for because it accepts that fact that it might be wrong, it becomes vulnerable to gullibility--it believes everything it hears. 
+
+Over ages, its been noted that merely observing the mind tends to increase one's level of consciousness. A ming that's being watched becomes more humble and begins to relinquish its claims to omniscience--this is the point at which a growth in awareness can take place.
+
+As we place less value on passing negativity, they begin to lose their capacity to dominate us, and we experience progressive freedom from the mind itself.
+
 ## Chapter 21: The Study of Pure Consciousness
+
+### Characteristics of Pure Consciousness
+
+Poorness can be seen as a quality characteristic of a limited self-image, which then **leads to** a scarcity of resources that follow. But it isn't a financial condition so much as it is a level of consciousness. Poor self-image calibrates to 60.
+
+> It's *consciousness itself* that that resonates as both awareness and experiencing, and both are *purely subjective*
+
+Yet it is this identification with the contents of our consciousness that accounts for the experience of self as limited.
+
+In contrast, to identify with consciousness itself is to know that one's actual self is **unlimited**. 
+
+When such circumscribed self-identifications have been surmounted so that the sense of self is identified as consciousness itself, we become **enlightened**. 
+
+### Contemporary Recognition of Higher Consciousness
+
+As we have seen with the connection between mind, body, and health, the capacity to heal desperate conditions lay distinctly within the realm of higher consciousness.
+
+It should be **heavily emphasized** that the great human wisdom from extraordinary people didn't proceed from *conceptual rationalization* nor any other deeply *introspective* focus of the self--rather from a *leap* to a higher consciousness. That is both the common point of convergence and point of origin for all great human insight. 
+
 
 ## Chapter 22: Spiritual Struggle
 

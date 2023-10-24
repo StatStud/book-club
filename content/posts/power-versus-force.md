@@ -84,6 +84,12 @@ cover:
 - Power and perception go hand-in-hand
 - Thoughts really belong to the consciousness of the world; the individual merely processes them in new combinations and permutations.
 - It's *consciousness itself* that that resonates as both awareness and experiencing, and both are *purely subjective*
+- Spiritual work, like other intensive pursuits such as sports, can be arduous and frequently require the development of specific tools for the task, namely (1) **extremely focused intent** (2) **unfailing concentration**
+- What makes inner work so difficult is the great effort required to escape from the *familiar* gravity of lower attractor fields and move to the influence of a higher field.
+- Unfortunately, the more conservative, shy, and dogmatic types will enforce this as judgmental "sin". A more liberal viewpoint *accepts* man's dalliance in lower energy fields as a **pardonable** "failing".
+- To seek enlightenment, the key is **WILL**; a constantly repeated act of **CHOICE**
+- A persistent (faithful) **willingness** is the trigger that activates a new attractor field and allows one to begin to leave the old.
+- Holding the image of an advanced spiritual teacher in mind made every subject go strong, independent of personal beliefs. Human relationships matter. 
 
 
 # Foreword
@@ -1305,6 +1311,10 @@ As we place less value on passing negativity, they begin to lose their capacity 
 
 ## Chapter 21: The Study of Pure Consciousness
 
+### Summary
+
+It should be **heavily emphasized** that the great human wisdom from extraordinary people didn't proceed from *conceptual rationalization* nor any other deeply *introspective* focus of the self--rather from a *leap* to a higher consciousness. That is both the common point of convergence and point of origin for all great human insight.
+
 ### Characteristics of Pure Consciousness
 
 Poorness can be seen as a quality characteristic of a limited self-image, which then **leads to** a scarcity of resources that follow. But it isn't a financial condition so much as it is a level of consciousness. Poor self-image calibrates to 60.
@@ -1323,8 +1333,53 @@ As we have seen with the connection between mind, body, and health, the capacity
 
 It should be **heavily emphasized** that the great human wisdom from extraordinary people didn't proceed from *conceptual rationalization* nor any other deeply *introspective* focus of the self--rather from a *leap* to a higher consciousness. That is both the common point of convergence and point of origin for all great human insight. 
 
-
 ## Chapter 22: Spiritual Struggle
+
+It's a common experience for as-yet-unenlightened devotees to enter the "sublime" state of a "saint" (the social nickname of those calibrated over 500s and 600s) when in the presence of such an enlightened person. This happens when the presence of one powerful attractor pattern dominates the atmosphere of the interaction. Hence, it makes sense that this "rub-off" state of heightened enlightenment vanishes as soon as the saint leaves; until the devotee arrives at the higher state of awareness himself, the state will not persist in the saint's absence.
+
+Advanced spiritual seekers often fluctuate in and out of this "presence of the Beloved" as they approach enlightenment, often losing the higher state and descending down to a lower one. 
+
+In fact, this phenomenon is so well recorded in Western and Eastern literature that they even have a name for it: "anguish of the soul".
+
+> Spiritual work, like other intensive pursuits such as sports, can be arduous and frequently require the development of specific tools for the task, namely (1) **extremely focused intent** (2) **unfailing concentration**
+
+> What makes inner work so difficult is the great effort required to escape from the *familiar* gravity of lower attractor fields and move to the influence of a higher field.
+
+It's no wonder how all religions issue restrictions against exposing oneself to the lower energy fields in an attempt to relieve this struggle. 
+
+Unfortunately, the more conservative, shy, and dogmatic types will enforce this as judgmental "sin". A more liberal viewpoint *accepts* man's dalliance in lower energy fields as a **pardonable** "failing".
+
+> Whatever viewpoint you adopt, the result is still the same: attitudes, emotions, and behaviors characteristic of energy below 200 preclude spiritual experience.
+
+The classical chakra system recognized by many almost exactly correlates with the Levels of calibrated consciousness from this book.
+
+From the chakra system, 600 corresponds to the crown chakra, 500 to the hear, and 200 and up to the solar plexus. All lower attitudes are associated with the spleen.
+
+> Interestingly enough, we see another common characteristic among all major spiritual teachings: to avoid "worldliness" things, such as attachments to sex or money. Both the base chakra and the lower energy levels are associated with these primal and survival reactions that **prohibit spiritual progress**. If you wish to ascend, you must let go.
+
+These lower regions are the center of addictions; one can be fixated at any of the lower levels.
+
+Almost all of these lower energy fields, as well as their symptomatic behaviors that result, now have given rise to specific self-help groups.
+
+But without the spiritual context, recovery is quite unlikely.
+
+The same principle operates in the opposite direction.
+
+> To seek enlightenment, the key is **WILL**; a constantly repeated act of **CHOICE**
+
+In all spiritual disciplines, the opening wedge predicated for advancing one's awareness is described as "**WILLINGNESS**".
+
+> A persistent (faithful) **willingness** is the trigger that activates a new attractor field and allows one to begin to leave the old.
+
+It's the combinations of (1) free will (2) the decisive power of choice (3) evolution; that creates a crossover for change to take place.
+
+The common trap is to go out and do it alone.
+
+A devotee can abet his own progress by merely focusing on an advanced teacher and thereby aligning with that teacher's energy field. 
+
+> Holding the image of an advanced spiritual teacher in mind made every subject go strong, independent of personal beliefs. Human relationships matter. 
+
+Side note: This also might be why married men with children earn more, and generally seem more fulfilling. Ultimately, if you're on a hill, about to die, the last thing that comes to your mind are your wife and kids, and holding that image alone provides enough power to overcome death--the idea that you simply *can't* die because of your higher calling.
 
 ## Chapter 23: The Search for Truth
 

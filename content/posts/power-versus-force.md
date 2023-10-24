@@ -884,6 +884,20 @@ Only the childish proceed from the assumption that the human behavior can be exp
 
 **Denying the basic *biological needs* and instinctual drives is futile.** Blocking normal sexual outlets merely results in the creation of *abnormal* sexual outlets. The solutions that have power are the ones realistically based at the level of acceptance (350) rather than shame (20).
 
+Side note: Look, I'm all for falling into temptation and sexual gratification in the name of "biological needs" and "instinctual drives", but how do these ideas align with the classical Judeo-Christian ideas including:
+
+(1) “So whether you eat or drink or whatever you do, do it all for the glory of God” (1 Corinthians 10:31). If we cannot give God glory for something, we should not do it.
+
+(2) “Everything that does not come from faith is sin” (Romans 14:23). If we are not fully convinced that an activity is honoring to God, it is a sin.
+
+(3) “I will not be mastered by anything” (1 Corinthians 6:12). Christians have a responsibility to avoid anything that might enslave them.
+
+(4) “I discipline my body and keep it under control” (1 Corinthians 9:27). Self-denial is difficult, but self-discipline is worth it.
+
+(5) “The fruit of the Spirit is . . . self-control” (Galatians 5:22–23). Masturbation is almost always a sign of a lack of self-control.
+
+(6) Do “not gratify the desires of the flesh. For the flesh desires what is contrary to the Spirit, and the Spirit what is contrary to the flesh. They are in conflict with each other, so that you are not to do whatever you want” (Galatians 5:16–17). We are called to self-denial, not to self-gratification.
+
 The American drug issue is another example. The mistake is in looking at the problem moralistically and acting out of force and condemnation (150) in a punishing role.
 
 Successful solutions are based on the powerful principle that resolution occurs by fostering the positive, not by attacking the negative.

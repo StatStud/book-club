@@ -90,6 +90,9 @@ cover:
 - To seek enlightenment, the key is **WILL**; a constantly repeated act of **CHOICE**
 - A persistent (faithful) **willingness** is the trigger that activates a new attractor field and allows one to begin to leave the old.
 - Holding the image of an advanced spiritual teacher in mind made every subject go strong, independent of personal beliefs. Human relationships matter. 
+- The common trap is to go out and do it alone
+- great saints have typically asserted that they were mere channels of a higher power--they've taken no credit for personal initiative in achieving their state, which they attribute to Grace.
+- The power of creation proceeds from the top-down, rather than bottom-up
 
 
 # Foreword
@@ -1349,6 +1352,19 @@ It should be **heavily emphasized** that the great human wisdom from extraordina
 
 ## Chapter 22: Spiritual Struggle
 
+### Summary
+
+Spiritual work, like other intensive pursuits such as sports, can be arduous and frequently require the development of specific tools for the task, namely (1) **extremely focused intent** (2) **unfailing concentration**.
+
+It's no wonder how all religions issue restrictions against exposing oneself to the lower energy fields in an attempt to relieve this struggle. 
+
+Whatever viewpoint you adopt, the result is still the same: attitudes, emotions, and behaviors characteristic of energy below 200 preclude spiritual experience.
+
+To seek enlightenment, the key is **WILL**; a persistent (faithful) **willingness** manifested by a constantly repeated act of *intentional* **CHOICE**.
+
+
+### Notes
+
 It's a common experience for as-yet-unenlightened devotees to enter the "sublime" state of a "saint" (the social nickname of those calibrated over 500s and 600s) when in the presence of such an enlightened person. This happens when the presence of one powerful attractor pattern dominates the atmosphere of the interaction. Hence, it makes sense that this "rub-off" state of heightened enlightenment vanishes as soon as the saint leaves; until the devotee arrives at the higher state of awareness himself, the state will not persist in the saint's absence.
 
 Advanced spiritual seekers often fluctuate in and out of this "presence of the Beloved" as they approach enlightenment, often losing the higher state and descending down to a lower one. 
@@ -1387,13 +1403,23 @@ In all spiritual disciplines, the opening wedge predicated for advancing one's a
 
 It's the combinations of (1) free will (2) the decisive power of choice (3) evolution; that creates a crossover for change to take place.
 
-The common trap is to go out and do it alone.
+> The common trap is to go out and do it alone.
 
 A devotee can abet his own progress by merely focusing on an advanced teacher and thereby aligning with that teacher's energy field. 
 
 > Holding the image of an advanced spiritual teacher in mind made every subject go strong, independent of personal beliefs. Human relationships matter. 
 
 Side note: This also might be why married men with children earn more, and generally seem more fulfilling. Ultimately, if you're on a hill, about to die, the last thing that comes to your mind are your wife and kids, and holding that image alone provides enough power to overcome death--the idea that you simply *can't* die because of your higher calling.
+
+The agency of change in spiritual struggles of personal metamorphosis is always beyond the power of the seeker, for great saints have typically asserted that they were mere channels of a higher power--they've taken no credit for personal initiative in achieving their state, which they attribute to Grace.
+
+In more traditional techniques, prayer and meditation also provide points of departure to rise from the influence of a lower energy field into a higher one.
+
+In addition, the book "A Course in Miracles" by Helen Schucman is a great read on how to prepare for sudden jumps in consciousness through encouraging a total change of perception.
+
+There are a lot of explanations for why reason, although very crafty and can advance mankind very far, can be the very thing that denys our escape to the planes above intellect. Here's one quote that sums it all up:
+
+> The power of creation proceeds from the top-down, rather than bottom-up
 
 ## Chapter 23: The Search for Truth
 

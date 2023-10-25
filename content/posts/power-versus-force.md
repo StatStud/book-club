@@ -93,6 +93,10 @@ cover:
 - The common trap is to go out and do it alone
 - great saints have typically asserted that they were mere channels of a higher power--they've taken no credit for personal initiative in achieving their state, which they attribute to Grace.
 - The power of creation proceeds from the top-down, rather than bottom-up
+- An individual's level of consciousness is determined by the **principles** to which one is committed. To maintain progress in consciousness, there can be no wavering from principle or the individual will fall back to a lower level. A principle cannot allow **any exceptions**, *independent* of how emotionally appealing a construct may be used to *justify* the exception. Actions only.
+- Any individual increase in one's level of consciousness also raises the consciousness of everyone on the planet to some degree.
+- Even when a person *intellectually* knows his behavior is self-destructive, this knowledge has no necessary deterrent effect whatsoever; **intellectual recognition of our addictions has never given us power to control them**.
+- Hell isn't a condition imposed by a judgemental God, but rather the inevitable consequence of one's own **CHOICES**.
 
 
 # Foreword
@@ -1423,7 +1427,100 @@ There are a lot of explanations for why reason, although very crafty and can adv
 
 ## Chapter 23: The Search for Truth
 
+### Summary
+
+A principle cannot allow **any exceptions**, *independent* of how emotionally appealing a construct may be used to *justify* the exception. Actions only.
+
+### Notes
+> Truth is whatever is *subjectively* convincing at one's current level of perception.
+
+When analyzing major religions (Christianity, Buddhism, Judaism, Hinduism, Islam, etc), we find that the most "yin" (feminine, passive, dark) have remained relatively pure throughout the ages, whereas those that are more "yang" (masculine, high energy, bright) are often involved in worldly affairs and have degraded remarkably. 
+
+The more dualistic the creed, the higher probability to misinterpret its teachings because dualism promotes a split between belief, action, and the discernment levels of truth.
+
+For example, people who hear about "Christian soldiers" may interpret that as literally going out and physically engaging in warfare for your faith.
+
+Side note: I mean, don't we all have to engage in some warfare to establish peace and stability? Da Vinci used his proceeds from developing war weapons to eventually end up painting the Mona lisa. The US constitution came after the declaration of independence, from which we battled to establish our own nation. It seems like in order to gain access to these higher levels of consciousness, we have to get our hands a little dirty.
+
+Until one has become enlightened himself, all spiritual teachings remain hearsay and thus prone to distortion and misunderstanding. Scripture can be quoted to justify any position.
+
+Within any religion, fundamentalist sects always calibrated lowest, often operating at the same level of consciousness as criminality, for their hallmark is egocentric extremism and irrationality. 
+
+There also exists highly destructive groups that believe in evil; such groups don't operate in moral vacuums, but paradoxically in puritan societies that encourages constant seduction but denies satisfaction, so a perpetual frustration of normal outlets eventually finds a release in perverse ones.
+
+The attempt to impose standards of would-be absolute Good and Evil is one of the greatest moral pitfalls.
+
+Through kinesiology testing, we can prove that a false premise such as "the ends justify the means" is operationally evil (assuming anything below 200 is evil because it does not promote life), yet this is still a routinely accepted justification for much human behavior.
+
+Religions that preach love but don't actually **practice** it may calibrate below 500 but above 200, for what they say is true, but their actions are out of alignment.
+
+An individual's level of consciousness is determined by the **principles** to which one is committed. 
+
+To maintain progress in consciousness, there can be no wavering from principle or the individual will fall back to a lower level.
+
+A principle cannot allow **any exceptions**, *independent* of how emotionally appealing a construct may be used to *justify* the exception. Actions only.
+
+Side note: what if, like in bayesian statistics or the teachings of Emerson, we acquire new data that convinces us to change our principles?
+
+Little children should be taught that dangerous behaviors are "wrong", but as they grow older, discernment should replace moralism.
+
+Moralism is a byproduct of duality, and becomes insignificant as the consciousness level rises through the 500s, and irrelevant at level 600. 
+
+Look at nature and evolution; it's not wrong that a lion kills a zebra; it simply is.
+
+The four levels of truth are:
+- subjective
+- operational 
+- hypothetical
+- intellectual
+
+> The legitimacy of any of these truths is dependent upon the context of a given perception level
+
+Truth isn't functional unless it's meaningful, and meaning, like value, relies on a unique perceptual field.
+
+Facts and data may be convincing at one level, and irrelevant at another.
+
 ## Chapter 24: Resolution
 
+### Summary
 
+Any individual increase in one's level of consciousness also raises the consciousness of everyone on the planet to some degree.
 
+Even when a person *intellectually* knows his behavior is self-destructive, this knowledge has no necessary deterrent effect whatsoever; **intellectual recognition of our addictions has never given us power to control them**.
+
+### Notes
+
+"A through absorption of the material presented in this book has been shown to be able to raise one's level of consciousness by an average of 35 points"--yes, very true! I personally has drastic change in my habits and started making new friends! :)
+
+> Any individual increase in one's level of consciousness also raises the consciousness of everyone on the planet to some degree.
+
+It's best to heed the traditional wisdom that tells us not to fear evil nor  fight it, but to merely avoid it.
+
+> Obscurity is dispelled by augmenting the light of discernment, rather than *attacking* the darkness.
+
+Mankind lacks the capacity to recognize the difference between truth and falsehood.
+
+Wisdom can ultimately be reduced to the simple process of avoiding what makes you go weak.
+
+The most common and insidious addiction is denial, which unlightens up from our intellectual vanity.
+
+Here's ultimately why reason alone cannot save us:
+
+> Even when a person *intellectually* knows his behavior is self-destructive, this knowledge has no necessary deterrent effect whatsoever; **intellectual recognition of our addictions has never given us power to control them**.
+
+Wow. 
+
+This is just like what David J. Lieberman mentions in [his book](https://bookswithalex.com/posts/never-get-angry-again/#one-paragraph-summary-5).
+
+"The reason why intellect plays little roll in self-awareness is because making high quality decisions is rarely about reason and logic (that’s already done beforehand) but in the emotion and desire TO EXECUTE ON THAT LOGIC. Everyone knows what to do, few do it."
+
+Then there's also [this segment](https://bookswithalex.com/posts/never-get-angry-again/#one-paragraph-summary-4):
+"Just like what Rollo May talks about, intelligence has little relation to self-awareness or emotional heath. A smart person could very well have a poor diet and a poor outlook on life. Wisdom, however, opens our eyes to see what we wish would not exist, and to accept it with grace and respond with clarity and confidence. Anger is a signal indicting that your self-regulation is about to fail, unless you change now. You will never leave an argument thinking: “I wish I was angrier, I would have been able to handle myself better”"
+
+> Hell isn't a condition imposed by a judgemental God, but rather the inevitable consequence of one's own **CHOICES**.
+
+It's the final outcome of constantly choosing the negative and thus isolating oneself from love.
+
+The energy of a loving thought is enormously more powerful than that of a negative one. Therefore, the traditional solutions of love and prayer have a sound scientific basis; man within his own essence the power of his own salvation.
+
+We've **earned** the *capacity* to finally *discover* an inborn compass that can lead us out of the darkness of ignorance.

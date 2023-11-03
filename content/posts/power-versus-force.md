@@ -180,6 +180,15 @@ This book undergoes the challenge of presenting this material in the paradox of 
 
 # Part 1: Tools
 
+### Summary
+
+These are split into 8 chapters:
+- Chapters 1 and 2: introduction to nonlinear systems and non-newtonian thinking, as well as a technical introduction to the use of the kinesiologic test.
+- Chapters 3 and 4: We review the consciousness diagram, the meaning behind each level, and the behavioral/mindset characteristics for each
+- Chapters 5 and 6: The focus is on how these different levels of consciousness manifest themselves in society, and how addictions in external dependencies are really just artificial means of masking lower states and exposing higher ones to experience their own consciousness (Self). We also learn about the importance of will and how intentional choices and an earnest desire are required to advance one's consciousness.
+- Chapters 7 and 8: How appropriate use of the system will always lead to self-discovery and growth, not just personally, but also in current events, research, education, politics, etc. We also go deep in the difference between Power and Force, and how Power arises from meaning that is life sustaining and appeals to what uplifts, dignifies, and ennobles. It is meaning, and the maps of meaning, that connect the invisible universe with the physical, observable one.
+
+
 ## Chapter 1: Critical Advances in Knowledge
 
 

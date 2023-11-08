@@ -14,13 +14,15 @@ cover:
 
 ## One Sentence Summary
 
+There are levels to human consciousness, and the greater consciousness we have, the greater choices we can make, which leads to a net positive effect on the people around us and the world at large; this power in our actions arises from meaning that is life sustaining and appeals to what uplifts, dignifies, and ennobles.
+
 ## One paragraph Summary
 
 This book is divided into three parts:
 
-**Main takeaways for part 1**: This is the introduction that reveals to use the different levels of consciousness, the meaning behind each level, and the impact different levels of consciousness have on ourselves, other people, and the world around us.
+**Main takeaway for part 1**: This is the introduction that reveals to use the different levels of consciousness, the meaning behind each level, and the impact different levels of consciousness have on ourselves, other people, and the world around us.
 
-**Main takeaway from part 2**: In this section, we recognize patterns in life that help shape the answer to the fundamental question: ***why* do we do what we do?** What is the meaning behind it all? Why is power more effective than force? How does power appear in everyday life? How does power appear in moments of superhuman feats of accomplishments? What is the impact of power on our own health and fulfillment of our lives? What makes principles, values, and meaning so powerful?
+**Main takeaway from part 2**: In this section, we recognize *patterns in life* that help shape the answer to the fundamental question: ***why* do we do what we do?** What is the meaning behind it all? Why is power more effective than force? How does power appear in everyday life? How does power appear in moments of superhuman feats of accomplishments? What is the impact of power on our own health and fulfillment of our lives? What makes principles, values, and meaning so powerful?
 
 **Main takeaway about part 3**: Heavy emphasis on spirituality. Everything boils down to our choices. The quality of our choices, and therefore the fate of our lives, is dependent upon the perception from which we view the world. Striving for higher consciousness expands our perception, and this striving towards higher consciousness is the byproduct of a lifelong, unwavering, committed, voluntary willingness to find and live out our principles. Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree
 
@@ -34,6 +36,7 @@ This book is divided into three parts:
 
 # What ACTIONS/HABITS will I partake after reading this book?
 - Behaviorally speaking, I started going back to church and making an effort to learn more about people
+- I've also make a willing effort to attend career meetups related to my profession, and strike up conversations with interesting strangers (one such interactions led to a mutually beneficial discussion)
 
 # What Questions do I have after reading this book?
 

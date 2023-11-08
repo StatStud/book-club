@@ -33,6 +33,28 @@ This book is divided into three parts:
 - A recognition of consciousness itself, as explained by [Michael Singer's book, "The Untethered Soul"](https://bookswithalex.com/posts/the-untethered-soul/) and [Timothy Gallwey's "The Inner Game of Tennis"](https://bookswithalex.com/posts/the-inner-game-of-tennis/)
 
 # Reading Comprehension questions from ChatGPT
+1. In "Power vs. Force," what is the central concept that the author explores and distinguishes between?
+2. How does the author define "power" and "force" in the context of human behavior and consciousness?
+3. What are some examples provided in the book to illustrate the difference between power and force?
+4. What role does consciousness play in the author's exploration of power and force?
+5. According to the book, what are some of the consequences of living in a state of "force" rather than "power"?
+6. How does the author suggest one can move from a state of force to a state of power in their personal and professional life?
+7. What are the key principles or practices recommended by the author to raise one's level of consciousness and align with power?
+8. Can you explain the significance of the Hawkins Scale of Consciousness as discussed in the book?
+9. How does the book address the idea of spiritual growth and its relation to the concept of power?
+10. What is the main message or takeaway that the author wants readers to gain from "Power vs. Force"?
+
+## Answers
+1. Human consciousness has levels; levels that are below 200 are those that use force, and make people who weak in their actions, while those that calibrate above 200 use power, which is life sustaining, uplifting, and leads to enlightenment.
+2. In Part 1, the author details the difference between the two. Force is energy hungry, consumes, and creates an equal but opposite force. In the context of human behavior, people who use force always have to justify their actions, often create enemies, and are constantly wasting energy watching their backs for rivals, competitors, or enemies. Power, on the other hand, is that which supports and sustains life--it is self-evident, requires no justification, and does not create any negative backlash response. Power is also highly efficient, and creates more energy than it ever consumes. In human behavior, power is associated with uplifting people, creating new things for society, and achievement great feats of human accomplishment such as athletic achievement, genius insights, or the creating of new art, services, or industries that help people.
+3. Similar to what is mention in question 2. To further expand using history, Hitler used force, while Churchill used power; Stalin used force while Gorbachev used power. Gandhi used power, while the British empire used force. Martin Luther King Jr. used power while those supporting segregation used force. In all these settings, those who use power end up gaining more support from people and end up surviving and outlasting the person who uses force.
+4. There are levels to consciousness; to each higher levels of consciousness, one must let go of weak energy attractors (those that use force) in favor of strong energy attractors (those that use power). The critical point in consciousness that makes someone go from strong to weak is courage, which is the start of using power.
+5. When one lives in force instead of power, such persons operated through the world through a limited perspective, which hinders their ability to choose the best course of action that will improve their life, the life of others, and the world around them. Their life will be full of misery, and they will not be able to sustain themselves in the long run.
+6. Courage is the start of a person moving from using force to power. Courage is the belief that the person has the ability to shape his future; it is marked by an earnest willingness to seek answers and higher perspective. It is where the person voluntarily confronts that which he fears, takes the burden of responsibility, and humbles himself to learn new skills and lessons.
+7. The practices and principles are similar to those found in Alcohol Anonymous; namely, seeking a higher power, practicing prayer and mediation, seeking fellowship with others by help others with their struggles, and coming to the realization that you are not perfect all help position the person to reach higher levels of consciousness. Beyond this there is the mention of practicing non-judgmental awareness, forgiveness, compassion, and fostering principles.
+8. The scale is logarithmic, meaning that the levels are not evenly spaced; the higher you go on the scale, the greater the difference in consciousness and achieving higher levels, such at those 500s and above, is remarkably harder and requires a lifetime of inner work.
+9. low energy attractors preclude spiritual development; to advance spiritually, one must consciously, deliberately, and persistently choose strong energy attractors over weak ones.
+10. Any individual increase in one's level of consciousness also raises the consciousness of everyone on the planet to some degree.
 
 # What ACTIONS/HABITS will I partake after reading this book?
 - Behaviorally speaking, I started going back to church and making an effort to learn more about people

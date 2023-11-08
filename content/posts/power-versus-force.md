@@ -61,6 +61,7 @@ This book is divided into three parts:
 - I've also make a willing effort to attend career meetups related to my profession, and strike up conversations with interesting strangers (one such interactions led to a mutually beneficial discussion)
 
 # What Questions do I have after reading this book?
+- see "side note" comments throughout chapter summaries.
 
 # What Phrase(s) can I add/validate to my mantras?
 - It isn't life's events, **but how one reacts to them and the attitude that one has about them**, that determines whether such events have a positive or negative effect on one's life.

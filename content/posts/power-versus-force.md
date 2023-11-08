@@ -16,7 +16,13 @@ cover:
 
 ## One paragraph Summary
 
-**Main takeaway about part 3**: Everything boils down to our choices. The quality of our choices, and therefore the fate of our lives, is dependent upon the perception from which we view the world. Striving for higher consciousness expands our perception, and this striving towards higher consciousness is the byproduct of a lifelong, unwavering, committed, voluntary willingness to find and live out our principles. Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree
+This book is divided into three parts:
+
+**Main takeaways for part 1**: This is the introduction that reveals to use the different levels of consciousness, the meaning behind each level, and the impact different levels of consciousness have on ourselves, other people, and the world around us.
+
+**Main takeaway from part 2**: In this section, we recognize patterns in life that help shape the answer to the fundamental question: ***why* do we do what we do?** What is the meaning behind it all? Why is power more effective than force? How does power appear in everyday life? How does power appear in moments of superhuman feats of accomplishments? What is the impact of power on our own health and fulfillment of our lives? What makes principles, values, and meaning so powerful?
+
+**Main takeaway about part 3**: Heavy emphasis on spirituality. Everything boils down to our choices. The quality of our choices, and therefore the fate of our lives, is dependent upon the perception from which we view the world. Striving for higher consciousness expands our perception, and this striving towards higher consciousness is the byproduct of a lifelong, unwavering, committed, voluntary willingness to find and live out our principles. Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree
 
 
 ## What is the foundational knowledge required for me to learn this?
@@ -187,6 +193,8 @@ This book undergoes the challenge of presenting this material in the paradox of 
 # Part 1: Tools
 
 ### Summary
+
+**Main takeaways for part 1**: This is the introduction that reveals to use the different levels of consciousness, the meaning behind each level, and the impact different levels of consciousness have on ourselves, other people, and the world around us.
 
 These are split into 8 chapters:
 - **Chapters 1 and 2**: introduction to nonlinear systems and non-newtonian thinking, as well as a technical introduction to the use of the kinesiologic test.
@@ -791,14 +799,13 @@ An ABC may either be high-energy attractor or a lower-energy one; certain meanin
 # Part 2: Work
 
 ### Summary
+
+**Main takeaway from part 2**: In this section, we understand patterns that help shape the answer to the fundamental question: *why* do we do what we do? What is the meaning behind it all? Why is power more effective than force? How does power appear in everyday life? How does power appear in moments of superhuman feats of accomplishments? What is the impact of power on our own health and fulfillment of our lives? What makes principles, values, and meaning so powerful?
+
 - **Chapter 9**: A list of powerful patterns versus their equivalently weak force versions.
-- **Chapter 10**: Principles, meaning, values–all of these matter! It's how Churchill and Gandhi overcame the force of their oppressors.  life, liberty, freedom, and the equality of all men by virtue of endowment by a divine higher power.
-- **Chapter 11**: Support the solution over attacking the symptom
-- **Chapter 12**: the athlete recognizes that the maximal personal effort brought them to the breakthrough point from which they were transported by a power greater than that of the individual self. They realize at that moment that their performance was not merely the result of individual effort, but of a much higher power.
-- **Chapter 13**: There is power in surrendering to a higher power. The story of AA.
-- **Chapter 14**: The importance of beauty (as aligned with Jordan Peterson's thinking) and the meaning behind it to find beauty in all of our activities.
-- **Chapter 15**: Each of us has the capacity to become geniuses. To become a genius, do what you like to do best, and do it to the very best of your ability. The process of animating genius most commonly involves first formulating a question.  that which supports life is supported by life. Survival for geniuses is thus effortless, and giving and receiving are one and the same. 
-- **Chapter 16**: Why are the truly successful so humble? Because they realize that, deep down, they’re channels/vessels acted through to create success in the outer world.
+- **Chapter 10 and 14**: Principles, meaning, values–all of these matter! It's how Churchill and Gandhi overcame the force of their oppressors.  life, liberty, freedom, and the equality of all men by virtue of endowment by a divine higher power. Beauty itself can be found in all of our activities once we recognize the deeper meaning.
+- **Chapter 11 and 13**: There is power in surrendering to a higher power. The story of AA. In overcoming low energy attractors, supporting the solution over attacking the symptom is the key.
+**Chapter 12, 15, and 16**: Humans are capable of superhuman feats of power, from athletic accomplishments to genius insights and discoveries. Those who achieve great feats of power are equally humble because they realize that, deep down, they’re channels/vessels acted through by a higher power to create success in the outer world--their performance was not merely the result of individual effort, but of a much higher power. Therefore, power is accessible to anyone, anytime, anywhere.
 - **Chapter 17 and 18**: Your health is a reflection of your mindset. All stress is internally generated by one’s ATTITUDE. All illnesses should be reversible by changing thought patterns and habitual responses. Humor is important in life.
 
 ## Chapter 9: Power Patterns in Human Attitudes

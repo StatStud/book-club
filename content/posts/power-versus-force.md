@@ -16,12 +16,18 @@ cover:
 
 ## One paragraph Summary
 
+**Main takeaway about part 3**: Everything boils down to our choices. The quality of our choices, and therefore the fate of our lives, is dependent upon the perception from which we view the world. Striving for higher consciousness expands our perception, and this striving towards higher consciousness is the byproduct of a lifelong, unwavering, committed, voluntary willingness to find and live out our principles. Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree
+
+
 ## What is the foundational knowledge required for me to learn this?
-- Reading Rollo May's "Man's search for himself" is a great prerequisite
+- An understanding of what inner works means in the context of man's active shaping of his own fate, as explained in [Rollo May's book, "Man's search for himself"](https://bookswithalex.com/posts/mans-search-for-himself/)
+- The importance of Principles, as explained in Ray Dalio's book, "Principles"
+- A recognition of consciousness itself, as explained by [Michael Singer's book, "The Untethered Soul"](https://bookswithalex.com/posts/the-untethered-soul/) and [Timothy Gallwey's "The Inner Game of Tennis"](https://bookswithalex.com/posts/the-inner-game-of-tennis/)
 
 # Reading Comprehension questions from ChatGPT
 
 # What ACTIONS/HABITS will I partake after reading this book?
+- Behaviorally speaking, I started going back to church and making an effort to learn more about people
 
 # What Questions do I have after reading this book?
 
@@ -1224,6 +1230,18 @@ Relatively few people are committed to peace because in their heart and actions,
 A self-justified personality is the real enemy of peace.
 
 # Part 3: Meaning
+
+### Summary
+
+**Main takeaway about part 3**: Everything boils down to our choices. The quality of our choices, and therefore the fate of our lives, is dependent upon the perception from which we view the world. Striving for higher consciousness expands our perception, and this striving towards higher consciousness is the byproduct of a lifelong, unwavering, committed, voluntary willingness to find and live out our principles. Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree
+
+- **Chapter 19**: here is, ultimately, neither duality nor nonduality; there’s only awareness.
+- **Chapter 20**: Innumerable options are open to everyone all the time, but they’re  *infrequently chosen*. Why? Because people want *the context* that would make such options attractive. Suffice it to say, one’s range of choice is ordinarily limited only by one’s vision. How we react depends upon the world we’re reacting to. Who we become, as well as what we see, is determined by our perception
+- **Chapter 21**: great human wisdom from extraordinary people didn’t proceed from conceptual rationalization nor any other deeply introspective focus of the self–but rather from a leap to a higher consciousness
+- **Chapter 22**: The start of inner work. Attitudes, emotions, and behaviors characteristic of energy below 200 preclude spiritual experience. To seek enlightenment, the key is WILL; a persistent (faithful) willingness manifested by a constantly repeated act of intentional CHOICE.
+- **Chapter 23**: Review of the major religions. An individual’s level of consciousness is determined by the principles to which one is committed.  To maintain progress in consciousness, there can be no wavering from principle or the individual will fall back to a lower level. A principle cannot allow any exceptions, independent of how emotionally appealing a construct may be used to justify the exception. Actions only.
+- **Chapter 24**: Any individual increase in one’s level of consciousness also raises the consciousness of everyone on the planet to some degree. Hell isn’t a condition imposed by a judgemental God, but rather the inevitable consequence of one’s own CHOICES.
+
 
 ## Chapter 19: The Database of Consciousness
 

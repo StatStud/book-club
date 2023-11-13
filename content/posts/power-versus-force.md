@@ -2,7 +2,7 @@
 title: "Power Versus Force"
 date: 2023-07-25T20:06:41-04:00
 draft: false
-tags: []
+tags: ['spirituality','consciousness']
 ShowToc: true
 cover:
     image: power-versus-force.png

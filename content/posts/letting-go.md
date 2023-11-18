@@ -96,6 +96,8 @@ Here are the improvements we see when we let go:
 
 ## Summary
 
+The answer you seek is within you, and ready to be re-discovered
+
 ## Notes
 
 The chapter opens us with so many hard truths that other people, including myself, have done to "find" that process--yoga, mediation, Jungian studies, acupuncture, fasting, etc.
@@ -112,11 +114,95 @@ What is being offered to you is not something that has to be *acquired* nor obta
 
 > It is already yours and merely has to be reawakened and rediscovered.
 
-# Chapter 2: Introduction
+# Chapter 2: The Mechanism of Letting Go
 
 ## Summary
 
+The mechanism of letting go is the choice to release pressure, consciously and frequently, at will the moment we become aware of the pressure buildup; pressure comes as a result of involuntary reactivity.
+
+The great value in knowing how to surrender is that any and all feelings can be let go at any time, any place, **in an instant**, consciously and effortlessly, independent of external substances, people, or events.
+
+The real source of stress is actually internal, by how we choose to interpret events, for it is not the *external* stimulus that is cause of stress, but our degree of *internal* reactivity. 
+
+This is why warriors are those who can handle seemingly stressful events with such inner calmness through a center of strength from within. All the great teachers, from Jesus to Buddha, have asked us to look within ourselves.
+
 ## Notes
+
+> The technique is releasing pressure consciously and frequently at will; pressure that comes as a result of involuntary reactivity.
+
+All of man's problems arise because he cannot sit still for 30 minutes alone with his own thoughts.
+
+But it is not the thoughts or facts that make us uneasy, but how we choose to interpret those facts and the resulting feeling that arises from that choice. Thoughts and facts are painless and neutral by themselves.
+
+> It is the accumulated pressure of feelings that causes thoughts.
+
+According to neuroscientist Gray LaViiolette, thoughts are filed in the memory bank according to the various shades of feelings associated with those thoughts
+
+> That's why we learn best when we mix lessons with emotions.
+
+The great value in knowing how to surrender is that any and all feelings can be let go at any time, any place, **in an instant**, consciously and effortlessly.
+
+This means we don't need food, caffeine, alcohol, or any other external substance to get out of our own head.
+
+> So, what is this **surrendered state**? It's a state free of negative feelings in a given area so that creativity and spontaneity can manifest without opposition or the interference of inner conflicts.
+
+Side note: Michale Singer wrote a book called "The Surrender Experiment". I have not read it yet, but I wonder how it relates to this idea.
+
+> To be free of inner conflict and expectations is to give others in our life the greatest freedom. It allows us to experience the basic nature of the universe, which will be discovered, is **to manifest the greatest good possible in a situation**.
+
+### Feelings and Mental Mechanisms
+
+We have three ways of handling feelings:
+1. suppression/repression
+    - repression is done unconsciously, while suppression is done consciously
+    - arising from social and societal customs
+    - suppression creates unneeded tension that leads to completely avoidable health complications
+    - Feelings are commonly repressed through denial and projection; we maintain our self-esteem at the expense of others
+2. expression
+    - expression **DOES NOT** free you from emotions; it actually gives the emotion more energy
+    - Just enough negative feelings are released; the rest of the negatives are repressed
+    - leads to self-indulgence at the expense of others
+    - Often a misinterpretation of what Freud emphasized, which is the neutralization, sublimation, and socialization of negative feelings that are then channeled into constructive drives of love, work, and creativity
+    - but dumping our negative feelings on others, even therapists, is simply an expression of complaining, which is self-reinforcing and does not build a heroic narrative
+3. escape
+    - classic avoidance through vices or even workaholic traits
+    - people want to stay unconscious to avoid the negatives because they are terrified to face themselves; they cannot handle being alone
+    - The effect is the inability to truly love and trust other people, resulting in emotional isolation and self-hatred (think Gaby)
+
+### Feelings and Stress
+
+The real source of stress is actually internal, by how we choose to interpret events.
+
+The more fear we have on the inside, the more our perception of the world is charged with fear. How we view the world is how the world reacts to us.
+
+- to the fearful person, the world is a terrifying place
+- to the angry person, the world is a chaos of frustration 
+- to the guilty person, the world is a pit of temptation and sin
+
+> what we are holding inside colors our world.
+
+> It is not the external stimulus that is cause of stress, but our degree of reactivity.
+
+That's why people who find comfort in the uncomfortable have great resilience.
+
+### Life events and emotions
+
+Again, thoughts create our destiny:
+- the person with a lot of repressed grief will unconsciously create sad events
+- the fearful person precipitates frightening experiences
+- the angry person becomes surrounded by infuriating circumstances
+- the prideful person is constantly being insulted
+
+All the great teachers, from Jesus to Buddha, have asked us to look within ourselves.
+
+Because emotions emit a vibration energy, they affect and determine the people who are in our lives. Life events become influenced by our repressed and suppressed emotions on the physic level (e.g. anger attracts anger thoughts, anger thoughts attract anger actions, anger actions attract anger circumstances).
+
+> like attracts like.
+
+The rich get richer and the poor get poorer applies to people's state of mind. Ultimately, those who have, get--and we all have it, but few choose to get it.
+
+Those with a prosperity complex bring abundance to their lives.
+
 
 # Chapter 3: Introduction
 

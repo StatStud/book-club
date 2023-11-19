@@ -118,11 +118,11 @@ What is being offered to you is not something that has to be *acquired* nor obta
 
 ## Summary
 
-The mechanism of letting go is the choice to release pressure, consciously and frequently, at will the moment we become aware of the pressure buildup; pressure comes as a result of involuntary reactivity.
-
-The great value in knowing how to surrender is that any and all feelings can be let go at any time, any place, **in an instant**, consciously and effortlessly, independent of external substances, people, or events.
+The mechanism of letting go is the choice to release pressure, consciously and frequently, at will the moment we become aware of the pressure buildup; pressure comes as a result of involuntary reactivity. The process is just like those outlined in Michale Singer's book and The Inner Game of Tennis: **observe nonjudementally, and then let it pass while remaining open.**
 
 The real source of stress is actually internal, by how we choose to interpret events, for it is not the *external* stimulus that is cause of stress, but our degree of *internal* reactivity. 
+
+The great value in knowing how to surrender and let go is that any and all feelings can be let go at any time, any place, **in an instant**, consciously and effortlessly, independent of external substances, people, or events. The reward is a sudden realization  that we never needed all those thoughts after all. Instead, we are the space between those thoughts, and everything we ever need to know is already known within us.
 
 This is why warriors are those who can handle seemingly stressful events with such inner calmness through a center of strength from within. All the great teachers, from Jesus to Buddha, have asked us to look within ourselves.
 
@@ -202,6 +202,61 @@ Because emotions emit a vibration energy, they affect and determine the people w
 The rich get richer and the poor get poorer applies to people's state of mind. Ultimately, those who have, get--and we all have it, but few choose to get it.
 
 Those with a prosperity complex bring abundance to their lives.
+
+### The Mechanism of Letting Go
+
+Letting go involves:
+1. being aware of a feeling
+2. letting it come up
+3. staying with it
+4. letting it run its course and pass through you
+
+It's the exact same idea behind Michale Singer's idea of letting the feeling pass through you with openness. The first step is to allow yourself to experience the emotion without:
+- fighting it
+- condemning it
+- fearing it
+- moralizing it
+
+> It means to observe **nonjudgementally**, and regard it as just another wave of emotion
+
+To be sure, the best way to fail with the mechanism is to use any of the negative techniques such as (1) repression/suppression (2) expression (3) escape
+
+> When you give up resiting or trying to modify the feeling, it will shift to the next feeling and be accompanied by a lighter sensation
+
+And here's why we are motivated/incentivize to follow-through with the mechanism of letting go:
+
+> The reward of letting go is a progressive diminishing of dependance on anything or anyone outside of ourselves.
+
+### Resistance to letting go
+
+Letting go is a natural ability, and it's best done by simply doing it.
+
+Eventually, it will be seen that all thoughts are resistance; they are all images that the mind has made to prevent us from experiencing what actually *is*.
+
+> The **real** Self is the space between the thoughts; the field of silent awareness underneath all thoughts.
+
+If thoughts are the goldfish, then we are the water surrounding the fish.
+
+An example of this is when we are totally absorbed in whatever we're doing; that state of deep work when we don't notice the passing of time. The mind was quiet, and we were simply doing without resistance nor effort. Perhaps busy, but relaxed.
+
+> We suddenly realized that we never needed all those thoughts after all.
+
+> Inside of us, but out of our awareness, is the truth that "I already know everything I need to know", and this happens automatically.
+
+Naturally, there is the fear that, if we let go of our desire for something, then we won't get it.
+
+It is then beneficial to let go of some of the commonly held beliefs:
+- we only deserve things through hard work, struggle, sacrifice, and effort
+    - Side note: but how does this line-up with Carol Deweck's book, "Mindset"?
+- Suffering is beneficial and good for us
+- We don't get anything for nothing
+- Things that are very simple are not worth much
+
+Letting go of the above psychological barriers will allow an enjoyment of its effortlessness and ease.
+
+
+
+
 
 
 # Chapter 3: Introduction

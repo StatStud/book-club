@@ -254,16 +254,93 @@ It is then beneficial to let go of some of the commonly held beliefs:
 
 Letting go of the above psychological barriers will allow an enjoyment of its effortlessness and ease.
 
-
-
-
-
-
-# Chapter 3: Introduction
+# Chapter 3: The Anatomy of Emotions
 
 ## Summary
 
+The primary goal of mankind is survival, and it achieves this goal by the mind through the use of emotions. Self-awareness is increased much more rapidly **by observing feelings** rather than thoughts
+
 ## Notes
+
+> Simplicity is the hallmark of truth
+
+### The Goal of Survival
+
+> The primary goal of mankind is survival
+
+Every human desire seeks to ensure one's personal survival and survival of one's identified groups (family, friends, community, country, etc).
+
+One of the greatest fears of humans is the loss of the capacity to experience, makes influences people to choose to believe that they are their bodies, and that they need their body to experience life.
+
+It is therefore common for humans to look outside of themselves for the satisfaction of their needs, which leads them to experience themselves as vulnerable because they are insufficient unto themselves.
+
+> The mind is, therefore, a primarily survival mechanism through the use of emotions.
+
+Thoughts are engendered by the emotions, and these reactive emotions become shorthand for thoughts.
+
+Emotions are more basic and primitive than mental processes. *Reason* is the tool the mind uses to achieve its *emotional* needs.
+
+The issue is that these emotions many times are below our awareness, leading to actions taken without a reason.
+
+The simple way to become conscious of the underlying emotional goal behind any action or behavior is by asking yourself, "what for?"
+
+Then, ask again, "what for?", until you get deeper and deeper.
+
+This is very similar to CBT and how we dig deep into the core beliefs.
+
+When you question each logical reason with "what for?" continually, we reveal that there are feelings of insecurity and lack of fulfillment.
+
+Each activity or desire will reveal that the basic goal is to achieve a certain *feeling*.
+
+Think about this! You desire nice things because you want the good feelings that come from it, whether it's
+- validation from others
+- sexual pleasure
+- peace
+
+They're all just feelings.
+
+Emotions are therefore connected with what we *believe* will ensure our survival, not with what *actually* will.
+
+Emotions themselves are actually the cause of the basic fear that drives everyone to seek constantly seek security.
+
+### The Scale of Emotions
+
+Everything emits energy, either positive or negative. In this section, we review the levels of consciousness from the book, "Power versus Force".
+
+Above the level of Courage, people *seek us out* because we give energy to them ("power") and we have good will towards them.
+
+Below the level of Courage, people *avoid us* because we *take* energy from them ("force") and we want to use them for our own material or emotional needs.
+
+### Understanding Emotions
+
+Similar to what was already mentioned in chapter two with Gray-LaViolette, all thoughts are filed in the mind's memory bank under a filing system based upon the associated feeling and its finer gradations.
+
+> There have been scientific observations that **self-awareness is increased** much more rapidly **by observing feelings** rather than thoughts
+
+Why might this be? Because there are thousands of thoughts connected to one emotion, so the understanding of the **underlying emotion** and its correct handling is, therefore, more rewarding and less time-consuming than dealing with one's thoughts.
+
+This section introduced a great illustration of the power of letting go, I'll summarize here:
+- Man loses passport a few hours before his trip
+- **reactively**, the man *panics*, and begins negative self-talk
+- With no victory from the negative self-talk, the man **remembers** to surrender
+- The man sits down and asks himself, "What for? **What is the basic feeling that I've been ignoring?**"
+    - The man identified that he is acting through guilt, shame, and fear
+    - The man realizes that, while missing the plane would suck, the world still continues to function..the man is at peace with his fate
+- At peace, the man instantly remembers where he placed the passport
+- The man now **responds** with gratitude and happiness
+
+
+> From the above, we conclude: **letting go** can be **very powerful** in both everyday practical life situations, as well as life crisis when we are bombarded with emotions.
+
+
+### Handling Emotional Crises
+
+
+
+
+
+
+
 
 # Chapter 4: Introduction
 

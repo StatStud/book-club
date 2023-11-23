@@ -258,15 +258,15 @@ Letting go of the above psychological barriers will allow an enjoyment of its ef
 
 ## Summary
 
-The primary goal of mankind is survival, and it achieves this goal by the mind through the use of emotions. Self-awareness is increased much more rapidly **by observing feelings** rather than thoughts
+We start this chapter by first uncovering the primary goal of mankind, which is that of survival (both personal survival and survival of one's identified group, community, and members). The mind learns so that it can survive to the next generation. Consequently, our minds have adapted to use emotions as shorthands for thoughts by using reason to achieve emotional needs. Each activity or desire will reveal that the basic goal is to achieve a certain feeling (validation, pleasure, peace, etc.). Emotions are therefore connected with what we *believe* will ensure our survival, not with what *actually* will.
 
-Another emotional technique to deal with unresolved issues, especially those from the past, is to place the event in a different context by giving it new meaning through which you're more receptive to discovering the hidden gift in it.
+This then leads us to ask: How can we overcome our emotions to heal from life crises and past traumas? 
 
-Fear of life is really the fear of emotions. It is not the facts that we fear but our feelings about them. So, once we have mastery over our feelings, our fear of life diminishes. How do we master our feelings? Start by first nonjudgmentally observing them, then, let them go. It's that simple.
+The answer is simple: Start by non-judgementally *observing* your negative emotions, then choosing to let them go by *surrendering* and asking "what am I feeling this way for?", and then, discover *within yourself* the opposite positive emotions that represent the greatness that lives within you. Letting go of negative feelings, and surrendering to positive ones.
 
-The corollary to letting go of negative feelings is to stop resisting the positive ones. Find within yourself the greatness that can be by recognized the opposite, positive emotions in relation to the negative ones you observe.
+When the fear of one of the smaller emotional units is acknowledged and released, all the alternative positive possibilities that exist will becomes suddenly apparent. Mastery of letting it go is mastery over fear, and the unblocking of whole avenues of life experiences that previously had been avoided due to self-imposed inhibitions from fear.
 
-When that inner emptiness, due to lack of self-worth, is replaced by true self-love, self-respect, and esteem, we no longer have to seek it in the world, for that source of happiness is **within ourselves**
+Self-awareness is increased much more rapidly by observing feelings rather than thoughts. When that inner emptiness, due to lack of self-worth, is replaced by true self-love, self-respect, and esteem, we no longer have to seek it in the world, for that source of happiness is **within ourselves**.
 
 ## Notes
 

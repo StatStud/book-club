@@ -260,6 +260,14 @@ Letting go of the above psychological barriers will allow an enjoyment of its ef
 
 The primary goal of mankind is survival, and it achieves this goal by the mind through the use of emotions. Self-awareness is increased much more rapidly **by observing feelings** rather than thoughts
 
+Another emotional technique to deal with unresolved issues, especially those from the past, is to place the event in a different context by giving it new meaning through which you're more receptive to discovering the hidden gift in it.
+
+Fear of life is really the fear of emotions. It is not the facts that we fear but our feelings about them. So, once we have mastery over our feelings, our fear of life diminishes. How do we master our feelings? Start by first nonjudgmentally observing them, then, let them go. It's that simple.
+
+The corollary to letting go of negative feelings is to stop resisting the positive ones. Find within yourself the greatness that can be by recognized the opposite, positive emotions in relation to the negative ones you observe.
+
+When that inner emptiness, due to lack of self-worth, is replaced by true self-love, self-respect, and esteem, we no longer have to seek it in the world, for that source of happiness is **within ourselves**
+
 ## Notes
 
 > Simplicity is the hallmark of truth
@@ -334,6 +342,112 @@ This section introduced a great illustration of the power of letting go, I'll su
 
 
 ### Handling Emotional Crises
+
+Recall from the previous chapter that the mind unconsciously uses suppression/repression, expression, and escape to handle emotional crises.
+
+These techniques, when used consciously, can actually be useful by disassembling the emotion into smaller peaces so it's easier to let go, piece-by-piece. But the key word here is *consciously* and *sparingly*.
+
+Thus, in the event of a crises, it may perfectly fine to *consciously* push away as much of the emotion we are capable of at the current moment, especially if it's an overwhelming crises.
+
+> Every strong emotion is really comprised of a number of smaller, less complex emotional units that can be disassembled.
+
+When the fear of one of the smaller emotional units is acknowledged and released, all the alternative possibilities that exist will becomes suddenly apparent.
+
+As the disassembled emotional complex is taken apart into its emotional units, each emotional unit now has less energy and can be surrendered individually, rather than being overwhelmed with so many emotions.
+
+Handling a crisis from the emotional standpoint, rather than the intellectual one, will shorten its duration dramatically.
+
+Think about it: if someone loses a job, handling the loss from an intellectual standpoint will produce thousands of hypothetical situations and worse-case scenarios, producing sleepless nights.
+
+Until the underlying emotion is surrendered, the thoughts will be engendered endlessly.
+
+There are numerous benefits to handling a life crises successfully; the feeling of self-esteem and greater awareness gives confidence in one knowing that he can survive and handle whatever life brings.
+
+There is an overall reduction of the fear of life, a greater feeling of mastery, compassion for the suffering of others, and increased ability to help them through similar circumstances.
+
+### Healing the Past
+
+Another emotional technique to deal with unresolved issues, especially those from the past, is to place the event in a different context.
+
+That is, see it from a different perspective through a different meaning. This is one of the most effective tools for handling the past.
+
+All we have to do is give it a different meaning.
+
+> We take on a different attitude about the past difficulty or trauma, and we acknowledge the hidden gift in it
+
+Side note: This is exactly what happened with Lauren. Although the project did not end well, I found a new band of people worth working with.
+
+This idea of reframing the past is endorsed by Viktor Frankl (Logotherapy).
+
+> "Everything can be taken from a man but one thing, the last of the human freedoms: to choose one's attitude in any given set of circumstances." --Viktor Frankl
+
+> Every life experience, no matter how tragic, contains a hidden gem of a lesson
+
+> All forbidden impulses, thoughts, feelings, and actions can be resolved with iterative probing of "so what?".
+
+Fear of life is really the fear of emotions.
+
+It is not the facts that we fear but our feelings about them.
+
+So, once we have mastery over our feelings, our fear of life diminishes.
+
+How do we master our feelings? Start by first nonjudgmentally observing them, then, let them go. It's that simple.
+
+> Fear is the bias of all inhibitions. Mastery over fear means the unblocking of whole avenues of life experiences that previously had been avoided.
+
+Thus, the man who successfully handles the crisis of losing a job will never again experience the same fear.
+
+Instead, he will actually be far more creative, taking new risks, and earning higher success in life.
+
+He will witness how the haunting fear of job loss had severely limited his performance in the past year, made him fearful and cautious, and cost him self-esteem due to his compliance with his superiors.
+
+Another benefit of a life-crisis is greater self-awareness. This is because we are forced to take a good look at our life situation and re-evaluate our beliefs, goals, values, and life direction. It is an opportunity to let go of guilt and have a total shift in our attitude.
+
+> The part of us that wants to cling to negative emotions is our smallest self.
+
+> The world can only see us as we see ourselves.
+
+Picture yourself as being generous, forgiving, loving, and experiencing your inner greatness. **Instantly** there will be an enormous increase in muscle strength as a result of positive bio-energy.
+
+Smallest on the other hand (picturing yourself as mean, petty, cheap, etc) brings sickness, disease, weakness, and death.
+
+Letting go will help the stopping of negative emotions.
+
+### Enhancing Positive Emotions
+
+> The corollary to letting go of negative feelings is to stop resisting the positive ones.
+
+Whenever we experience negative emotions, it's quite helpful to imagine the positive opposite version, and practice letting go.
+
+Here's an example (personal one): Imagine Lauren scheduled a 1:1 with you. You may start feeling fear, resentment, hatred, trapped. The opposite of those feelings would be courage, admiration,love, and free.
+
+We can **look within ourselves** for those positive opposites emotions--courage, admiration, love, and free-will, and stop resisting them.
+
+We then realize that part of our nature has always been willing to be positive--to be courageous, loving, respectful, and enthusiastic, but we didn't give it a chance. 
+
+> We instead thought we were punishing the other person by holding the resentment, but we have actually been repressing love.
+
+
+> The purpose of this exercise is to locate within ourselves that which can only be described as **greatness**
+
+Greatness is the courage to overcome obstacles. It is the willingness to move to a higher level of love. It is the acceptance of other's humanness and having compassion for their suffering.
+
+With this increased awareness of who we really are comes the progressive invulnerability of pain.
+
+> Out of the recognition of who we really are comes the desire to seek that which is uplifting, out of which arises a new meaning and context for life.
+
+> When that inner emptiness, due to lack of self-worth, is replaced by true self-love, self-respect, and esteem, we no longer have to seek it in the world, for that source of happiness is **within ourselves**.
+
+It dawns on us that it cannot be supplied by the world anyway.
+
+When we use these techniques of relinquishing the negative and surrendering the positive, we come into a sudden, comprehensive awareness of our true dimension.
+
+Once this has been experienced, it will never be forgotten. The world will never intimidate us again as it once did.
+
+Outwardly, the behavior may appear the same, but inwardly, the causes for it are now totally different.
+
+We go through life balanced and graceful.
+
 
 
 

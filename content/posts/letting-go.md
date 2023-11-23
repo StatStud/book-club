@@ -448,19 +448,64 @@ Outwardly, the behavior may appear the same, but inwardly, the causes for it are
 
 We go through life balanced and graceful.
 
-
-
-
-
-
-
-
-
-# Chapter 4: Introduction
+# Chapter 4: Apathy and Depression
 
 ## Summary
 
 ## Notes
+
+### I can't versus I won't
+
+The biological purpose of apathy is to summon aid. Apathy indicates a lack of life energy and closeness to death.
+
+The way out of apathy is to *remind* ourselves of our intentions, which is to get higher and freer--to become more effective and happy, and to let go of the resistance to the technique itself.
+
+It's reminding does not help, simply look at the current fruits that apathy yields in your life--are you happy with those fruits? It's your choice.
+
+Most "I can't" are often:
+- "I won't"
+- "I'm afraid to"
+- "I have too much pride to try, for fear I may fail"
+
+Behind the "I won't" is a reason "...because I am afraid". That is how we move upwards from apathy to fear in the consciousness map.
+
+Fear is a higher energy level than apathy. Fear at least begins to motivate us into action.
+
+Apathy is merely a veneer for fear.
+
+There was such a good, detailed description of the typical self-improvement path of many people, that I decided to include the whole section here:
+
+![](/letting-go1.png)
+
+This is the power of self-help groups: the sharing of inner experiences, from the lowest to the highest levels on the scale of emotions.
+
+> What does it mean to become more conscious?
+
+To begin with, it means to start looking for the truth for ourselves, rather than blindly subscribing to whatever we're programmed to follow by media or society.
+
+Becoming more conscious means accepting greater responsibility for what we choose to take personally into our psyche. We ultimately begin to realize that we have a choice.
+
+We can stop giving authority to all of the mind's thoughts, and begin to question them, and find out if there is really any truth in them for ourselves--it is a questioning of *everything*. 
+
+We learn that doing something new means being willing to let go of pride. We look at the cost as ask, 
+
+> "Am I willing to continue to pay this price? Would I be willing to let go of the fear of not succeeding. Would I be willing to let go of resisting the effort required? Would I be willing to let go of the vanity so that I could allow myself to be awkward as a learner? Could I let go of my stinginess and smallness and be willing to pay for the lessons and give the time?"
+
+> As all of the associated feelings are surrendered, it becomes clear that the real reason is unwillingness--not inadequacy
+
+It must be remembered that we are free to acknowledge and surrender our feelings, and we are free not to surrender. We are perfectly free to refuse to let go.
+
+We are free to hang onto negativity as long as we want, from our own choosing.
+
+We are free agents.
+
+### Blame
+
+
+
+
+
+
 
 # Chapter 5: Introduction
 

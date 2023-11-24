@@ -501,6 +501,112 @@ We are free agents.
 
 ### Blame
 
+Let's first look at what makes blame so appealing.
+
+Blame is the world's greatest excuse. It enables us to remain limited and small without feeling guilty. If we blame others for our troubles, then we get to be the innocent victim and the other party is the bad one; we enjoy the self-pity and the sympathy of others.
+
+But there is a cost: the loss of our freedom.
+
+The role of the victim brings with it a self-perception of weakness, vulnerability, and helplessness, which are the major components to apathy and depression.
+
+The first step out of blame is by nonjudementally observing that we are *choosing* to blame.
+
+The right approach is to forgive, forget, and give new meaning to the context. 
+
+We can see the right approach with Victor Frankl, who chose to forgive the Nazi guards and discover a hidden gift in his experience at the concentration camps.
+
+> **But here's the trick**: We have to be honest and realize that we are blaming because we *choose* to blame. This is true, no matter how *justified* the circumstances may appear to be.
+
+> It is not a matter of right or wrong, bt merely a matter of taking responsibility for our own consciousness, psyche, interpretations, and stories.
+
+To overcome blame, we get to be willing to surrender all of the little payoffs for something far greater.
+
+Depression and apathy result from the **willingness** to hang on the small self and its belief systems, plus the **resistance** to our Higher Self, which consist of all the opposites of the negative feelings.
+
+Who would I become reversed what I was willing to accept and resist?
+
+> Every feeling has its opposite. The way out of negativity is therefore the **willingness** to acknowledge and let go of negative feelings while simultaneously the **willingness** to let go of resisting of their positive opposite.
+
+The tricky thing with blame is that the mind can make up *reasonably sound* justifications. "I don't have time", "I don't deserve to give it up", "I can't forget what she did to me", "she should apologize to me first",etc.
+
+In this case, two things are operating:
+1. clinging to negativity and smallness within us
+2. resisting the positive and greatest within us
+
+> Here is one of the laws of consciousness: we are only subject to a negative thought or belief if we *consciously* say that it *applies to us*. **We are free to *choose* not to buy into a negative belief system.**
+
+This is life changing. No matter what the media says, whether it's a recession, dating crisis for young men, or the decay of American society, I am free to refuse to buy into the negative thought form.
+
+We can say instead:
+- "unemployment does not apply to me"
+- "recessions do not apply to me"
+- "gender wars do not apply to me"
+- "mental sickness does not apply to me"
+- "loneness does not apply to me"
+
+> By refusing to accept the negative belief, it now has **zero value** over our life.
+
+If we have power to manifest negativity, then we have power to manifest positivity.
+
+### Choosing the positive
+
+One surprising effect of the willingness to let go of our inner negativity is the discovery that the polar opposite of the negative feelings, the positive, exist.
+
+This is the inner reality that we call our "inner greatness" or "Higher Self".
+
+In return for letting go of the payoffs that we are getting from the negative position, we are now surprised by the positive payoffs that stem from the power of our positive feelings.
+
+One example of this is that when we let go of blame (small self), we surrender to and experience forgiveness (higher self).
+
+When we let go of payoffs from the small self, we experience the **unlimited capacity** that is our higher self.
+
+Our high self can **CREATE**:
+- employment opportunities
+- situations for the healing of relationships
+- opportunities to give and receive love
+- empower new financial, health, and well-being goals
+
+This empowerment results in a rise in self-esteem, the return of creativity, and the opening of a positive vision of the future that replaces fearlessness.
+
+If you have trouble practicing positivity, you can tell yourself that you're just doing an experiment, for purpose for which is to learn. The purpose is to also become familiar with the laws of consciousness and witness, in real time, the phenomenon to occur.
+
+> The mind projects on to the future with the expectation that the past will be repeated.
+
+When we discover this unconscious dynamic, we can choose to look again at the emotional complex disassemble it into its emotional units, let go of each negative component, and then let go of the resistance of its positive opposite.
+
+The more we do this, the more our perspective of the future changes, the more the world changes, and the more hwo the world responds to us changes.
+
+Here are some questions to ask yourself when you observe your small self:
+- How long am I willing to pay the cost?
+- How much blame is enough?
+- Is there a time to call an end to it?
+- How long will I hang on to it?
+- How much shame is enough?
+- How much self-punishment is enough?
+- When does the sentence come to and end?
+- Where has my bitterness taken me?
+
+
+Now, ask these questions:
+- Did school teach me courses on consciousness?
+- Did anyone ever tell me that I had freedom to choose what went into my mind?
+- Was I ever taught I could refuse all of the negative programming?
+- Did anyone ever tell me the laws of consciousness?
+- Why not stop beating ourselves up right now?
+
+> We all did what we thought was best in the moment.
+
+### The company we keep
+
+Another valuable technique for overcoming apathy and depression, and the "I can't/I won't" attitudes, is to choose to surround yourself with people who have resolved the issues you're currently facing. **This is one of the great powers of self-help groups.**
+
+Those who are in a higher vibration are free of the energy from their negative thoughts and have energized positive thought forms. To merely be in their presence is beneficial enough.
+
+We are either positively or negatively influenced by the company we keep.
+
+
+
+
 
 
 

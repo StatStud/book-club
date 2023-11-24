@@ -452,6 +452,25 @@ We go through life balanced and graceful.
 
 ## Summary
 
+Apathy and depression is merely a veneer for fear; behind every "I can't" is actually a "I won't because I'm afraid of/to..."--it is an issue of **unwillingness**, not *inadequacy*. We are free to hang onto negativity as long as we want, from our own choosing.
+
+This leads us to ask one of the foundational questions of this book: what is the purpose of higher consciousness? 
+
+To begin with, it means to start looking for the truth for ourselves, rather than blindly subscribing to whatever we're programmed to follow by media or society. Becoming more conscious means accepting greater **responsibility** for what we **choose** to take personally into our psyche. We ultimately begin to realize that we have a choice--it is a questioning of *everything*. This affects the habits we choose, the relationships we foster, and ultimately the fate of our lives. 
+
+Blame is an example of a programmed attitude that much of society accepts. When we play the blame game, we get the short-term payoff of being victimized, but at the long-term cost of our freedom--for how can we be the heros and captains of our life is we are slaves to the things that happen to us?
+
+**But here's the trick**: We have to be honest and realize that we are blaming because we *choose* to blame. This is true, no matter how *justified* the circumstances may appear to be. It is not a matter of right or wrong, but merely a matter of taking responsibility for our own consciousness, psyche, interpretations, and stories.
+
+Every feeling has its opposite. The way out of negativity is therefore the **willingness** to acknowledge and *let go* of negative feelings while simultaneously the **willingness** to *let go* of resisting of their positive opposite.
+
+One surprising effect of the willingness to let go of our inner negativity is the discovery that the polar opposite of the negative feelings, the positive, exist. This is the inner reality that we call our "inner greatness" or "Higher Self", and it has unlimited creative capacity in all realms of life: employment, relationships, health, etc. In return for letting go of the payoffs that we are getting from the negative position, we are now surprised by the positive payoffs that stem from the power of our Higher Self.
+
+No matter what others or society says, you are free to refuse to buy into the negative thought form. By refusing to accept the negative belief, it now has **zero impact** over our life. By that same token, If we have power to manifest negativity, then we have power to manifest positivity.
+
+Here is one of the laws of consciousness: we are only subject to a negative thought or belief if we *consciously* say that it *applies to us*. **We are free to *choose* not to buy into a negative belief system.**
+
+
 ## Notes
 
 ### I can't versus I won't

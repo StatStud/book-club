@@ -606,13 +606,6 @@ We are either positively or negatively influenced by the company we keep.
 
 
 
-
-
-
-
-
-
-
 # Chapter 5: Introduction
 
 ## Summary

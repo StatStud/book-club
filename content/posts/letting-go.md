@@ -624,12 +624,28 @@ Those who are in a higher vibration are free of the energy from their negative t
 We are either positively or negatively influenced by the company we keep.
 
 
-
-# Chapter 5: Introduction
+# Chapter 5: Grief
 
 ## Summary
 
 ## Notes
+
+### Allowing grief
+
+Unlike apathy, the main different with grief is that we are at least calling for the help of others.
+
+The good thing about grief is that, as long as we don't resist it and choose instead to surrender to it, it becomes time-limited, and passes after about 10-20min.
+
+But this only works if we relinquish the fear of being swamped and overwhelmed by it.
+
+### Healing Loss
+
+> Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
+
+To handle the fear of loss, we have to look at what purpose the external person or object serves in our life. What emotional need is being fulfilled? What emotion would arise if we lost that person or thing that we are so attached to?
+
+If loss can be anticipated, we can better handle the various fears associated with the sense of loss by disassembling the emotional units.
+
 
 # Chapter 6: Introduction
 

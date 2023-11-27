@@ -646,6 +646,90 @@ To handle the fear of loss, we have to look at what purpose the external person 
 
 If loss can be anticipated, we can better handle the various fears associated with the sense of loss by disassembling the emotional units.
 
+For example, a pet dog that's near his expiration date may evoke feelings of sadness over the inevitable loss that's around the corner. You ask yourself, 
+
+> "what purpose is the dog serving in my life? What is his emotional service to me? Love, companionship, touch? Will losing the dog leave these personal emotional needs unfulfilled?"
+
+By following this deeper and deeper why questioning, some of the fears can be acknowledged and relinquished. Once the fear is let go, you don't have to resort to denial and pretend to yourself that your dog will live forever.
+
+> Anger is another emotion associated with grief, and results from prior refusal to accept **the fact that all relationships and possessions in this life are transitory**
+
+We often feel that what has become important or comforting to us is a permanent attachment, but this is among the biggest mistakes people choose to believe.
+
+"Impotent rage" is associated with the desire to change the nature of the world and the impossibility of doing so.
+
+When loss seems inevitable, many people will start treating symptoms by overcompensating with good works. A faltering relationship will have one side start acting more loving.
+
+> When the denial breaks down, and the manipulation stop working, and the fear has passed through, depression itself is what's left and the actual process of mourning and grief take place.
+
+But all of these emotional stages can be worked through more rapidly by the process of letting go.
+
+What does this mean?
+
+> It means the inevitability of the emotion of grief is surrendered to and replaced by a willingness to let go of resistance and let the process pass through and complete itself
+
+
+Instead of denial and resistance, you plunge into it and get it over.
+
+Grief can either lead down destructively to anger (a lower consciousness level) or acceptance (an even higher consciousness level). Acceptance and resignation are **not** the same thing: resignation is a half-ass acceptance of the facts ("I don't like it, but I *have to* put up with it"), whereas acceptance has an earnest and sincere acceptance of newfound perspective in light of new data.
+
+Resignation still clings with residual resentment over the facts, whereas acceptance reaches new heights by letting go of the resentments that hold it down.
+
+> Acceptance calibrates at 350--much higher than courage (200) or even willingness (310). As bad as grief may be, it can be the door through which acceptance grants us the creative aspects of the mind to develop opportunities for new life situations and further options for growth and experience, accompanied by a new sense of aliveness.
+
+Nearly all 12-step self-help groups follow this frame of mind with the **serenity prayer**: 
+
+> God, grant me the **serenity** to accept that things I cannot change, the **courage** to change the things I can, and the **wisdom** to know the difference.
+
+To not accept, is to prolong unnecessary suffering.
+
+### Preventing Grieving
+
+As we have explored, the basis of all mourning and loss is attachment, plus the denial of the transitory nature of **all** relationships
+
+> We can begin by looking at our lives, identifying those areas of attachments, and asking ourselves, "what *internal* needs are they satisfying? What feeling would come up if I were to lose them?"
+
+The greater our attachment to that which is *outside* of ourselves, the greater is our overall fear of and vulnerability to loss.
+
+> "Why am I so empty within myself, that I have to search for solutions in the form of attachment and dependency on others?"
+
+We begin to look within ourselves at our own areas of immaturity.
+
+> Specifically, we need to examine the question: **"Where am I looking to get love rather than to give it?"**
+
+The more loving we are, the less vulnerable we are to grief and loss, and the less we need to seek attachments (attachments are not limited to physical, worldly, materialistic possessions, but generally include anything outside of ourselves that we rely upon).
+
+It is in this action of letting go of negativity that we outgrow our smallness and  experience and rediscover our internal greatness of joy that comes from the *pleasure* of **giving and loving**--we become **immune** to the losses of the world.
+
+"Do what feels good" is both sound advice and terrible advice under different contexts: Feeling good from escaping through vices that are outsides of us leads to death, but feeling good by doing good inside of ourselves leads to everlasting life.
+
+> When the source of happiness is found *within* we are immune to the losses of the world.
+
+### Mid-life crises
+
+Again, attachments are not limited to materialistic things. A woman can find herself attached when she faces empty nest syndrome, and a man can face the same if he loses the job he so desperately sacrificed for.
+
+The reaction typically occurs suddenly in middle age, due to many years of pre-existing denial.
+
+There is often a lack of facing the inevitable and making plans for other life activities that would gratify the same inner needs which, in these cases, are feelings of:
+- self-esteem
+- importance
+- wanting to feel needed and significant
+- the need to make a contribution and be productive
+
+> So, anticipation of the inevitable and preparing for it **now** both bring relatively *minor* discomfort compared to traumatic grief and loss at a **later date**.
+
+> Here's a **VERY IMPORTANT** question to ask yourself in all of your relationships: "If their happiness were best served by leaving me, how would I feel about it?"
+
+This question, and the inner work that follows from it, reveals the degree to which we are trying to restrict and control the other person--in which case, it's not love, rather another form of attachment.
+
+But as we have discussed, it is only the small part of the self that becomes attached; the greater Self is immune to attachment. The purpose of letting go is to de-energize the habits of the small self so that they no longer run us; then, we are free to expand into greater awareness of our higher Self.
+
+> That part of us which we refer to as our greater Self seeks to give love rather than obtain it. For what can be obtained if it is already in possession?
+
+Immunity to grief of loss occurs when we replace dependence on the small self (the personality) with dependance on the higher Self (the Divinity within).
+
+We look for security to the Self, which is eternal, instead of the small self, which is transitory.
 
 # Chapter 6: Introduction
 

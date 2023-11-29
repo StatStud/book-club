@@ -628,15 +628,37 @@ We are either positively or negatively influenced by the company we keep.
 
 ## Summary
 
+Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
+
+To handle the fear of loss, we have to look at what purpose the external person or object serves in our life. What emotional need is being fulfilled? What emotion would arise if we lost that person or thing that we are so attached to?
+
+Anger is another emotion associated with grief, and results from prior refusal to accept **the fact that all relationships and possessions in this life are transitory**
+
+We often feel that what has become important or comforting to us is a permanent attachment, but this is among the biggest mistakes people choose to believe.
+
+"Impotent rage" is associated with the desire to change the nature of the world and the impossibility of doing so.
+
 ## Notes
 
 ### Allowing grief
 
-Unlike apathy, the main different with grief is that we are at least calling for the help of others.
+Grief comes from losing something we cherish. It comes at the result of the denial of the fact that **all** relationships are transitory in nature (this too shall pass).
 
-The good thing about grief is that, as long as we don't resist it and choose instead to surrender to it, it becomes time-limited, and passes after about 10-20min.
+Grief comes from seeking to obtain love from *outside* of us; we begin by looking at our lives, identifying those areas of attachments, and asking ourselves: 
+- what *internal* needs are they satisfying? 
+- What feeling would come up if I were to lose them? 
+- Why am I so empty *within myself*, that I have to search for solutions in the form of attachment and dependency *on others*? 
+- Where am I looking to get love rather than to give it? 
+- If the person/people I'm with become happier elsewhere, how would I feel about that?
 
-But this only works if we relinquish the fear of being swamped and overwhelmed by it.
+The greater our attachment to that which is *outside* of ourselves, the greater is our overall fear of, and vulnerability to, loss.
+
+When grief hits, let it pass by choosing **acceptance**; acceptance calibrates higher than willingness, and permits us to use grief to reach new heights of consciousness by letting go of the resentments that hold it down.
+
+The more loving we are, the less vulnerable we are to grief and loss, and the less we need to seek attachments (attachments are not limited to physical, worldly, materialistic possessions, but generally include anything outside of ourselves that we rely upon).That part of us which we refer to as our greater Self seeks to give love rather than obtain it. 
+
+For what can be obtained if it is already in possession?
+
 
 ### Healing Loss
 

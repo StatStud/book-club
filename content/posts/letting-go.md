@@ -860,6 +860,50 @@ Does that mean we stay unprotected and take hasty risks? Certainly not. Instead,
 
 ### Guilt
 
+Guilt is a substitute for a sense of reality in a mind that is underdeveloped; it is a learned behavior to prevent repetition of a mistake.
+
+> 99% of guilt has **ZERO** to do with **reality**
+
+Most pious, meek individuals are actually riddled with guilt.
+
+Guilt represents death just as love represents life.
+
+It is because of our own inner innocence that we have brought into all the negativity of the world and allowed it to kill our aliveness, destroy our awareness of who we really are, and sell us the pathetic little smallness for which we have settled.
+
+To recognize this means to be conscious.
+
+Think about it. What does it mean to "raise our consciousness"? To be programmed by other people on how to think?  To get someone else's version of truth?
+
+> Most consciousness programs boil down to this essential point: Become aware of what we are buying into, and what we are accepting daily.
+
+Similar to what Scott Adams echos, "humans are moist computers"; we are blank slates ready to be reprogrammed at any time.
+
+We are the innocent space in which the program is occurring.
+
+When we look at all of this, we are going to get angry; anger is better than apathy, depression, or even grief!
+
+You're depressed because you accepting someone else's programming that life is bad! Get angry at yourself for falling for the scam, and get going!
+
+> It means to take charge of our minds instead of handing it to whatever media we permit it to program ourselves. Media, people, hallway conversations, background noise. It's all garbage in, garbage out. Be ruthless with whom you permit to enter into your consciousness.
+
+We will enjoy starting to let the feelings come up, seeing them for what they actually are, clearing out all the garbage, and letting it all go.
+
+> It's time to re-own our own power and stop giving it away to every passing scammer who jingles our fears and shakes loose our energy. 
+
+Side note: this is just like when the business girl on twitter posted the worst side of Paris riot, claiming this was the future. It does not apply to me.
+
+As the quantity of guilty fear, and the energy that accompanies it, are relinquished, we will notice that physical diseases and symptoms begin to disappear.
+
+Remember: most hospital beds are filled due to EII--Emotionally Induced Illness.
+
+The capacity to love ourselves in the form of increased self-esteem returns and with it comes the capacity to love others.
+
+We become aware of all the guilt-mongers in life, and ask ourselves: "could we not achieve the same result out of love, rather than fear and guilt?"
+
+Is guilt the only reason why we don't stab our neighbors?
+
+
+
 # Chapter 7: Introduction
 
 ## Summary

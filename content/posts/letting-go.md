@@ -34,6 +34,17 @@ cover:
 - THERE IS LESS AND LESS DEPENDENCE ON INTELLECTUALISM AND A GREATER USE OF INTUITIVE KNOWINGNESS
 - This is the universal message of every great teacher, sage, and saint: "the kingdom of heaven is within you"
 - The major requirement for the journey is a willingness to let go of the attachment to your current experience of life.
+- The reward of letting go is a *progressive* *diminishing* of dependance on anything or anyone outside of ourselves.
+- **Self-awareness is increased** much more rapidly **by observing feelings** rather than thoughts
+- When that **inner emptiness** (or, as Rollo May would call it, "Hollow Men"), due to lack of self-worth, is replaced by true self-love, self-respect, and esteem, we no longer have to seek it in the world, for that source of happiness is within ourselves
+- The corollary to letting go of negative feelings is to stop resisting the positive ones.
+- “I can’t” is actually a “I won’t because I’m afraid of/to...”–it is an issue of *unwillingness*, **not** inadequacy. We are free to hang onto negativity as long as we want, from our own choosing.
+- The purpose of higher consciousness is to start looking for the truth for ourselves, rather than blindly subscribing to whatever we’re programmed to follow by media or society. Becoming more conscious means accepting greater responsibility for what we choose to take personally into our psyche. We ultimately begin to realize that we have a choice–it is a questioning of everything. This affects the habits we choose, the relationships we foster, and ultimately the fate of our lives.
+- one of the laws of consciousness: we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us. We are free to **choose** not to buy into a negative belief system.
+- Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
+- Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
+- Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
+- laws of consciousness: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love
 
 # Preface and Foreword
 ## Notes
@@ -753,11 +764,101 @@ Immunity to grief of loss occurs when we replace dependence on the small self (t
 
 We look for security to the Self, which is eternal, instead of the small self, which is transitory.
 
-# Chapter 6: Introduction
+# Chapter 6: Fear
 
 ## Summary
 
 ## Notes
+
+As we let go of fear, we find that behind it, there is often anger at the object of fear itself. The willingness to let go of fear reveals the anger at the object of fear itself, which brings us up higher in consciousness than fear.
+
+The fact that we can face fear and surrender it permits us to move up instantly to courage.
+
+#### Fear of Public speaking
+
+When we stop being afraid, we notice that it's just a feeling. Or, as Teddy Roosevelt said:
+
+> "There is nothing to fear, but fear itself"
+
+> Another law of consciousness: what one holds in mind tends to manifest in reality.
+
+Thus, fear engenders fear; the more we cling to fear, the more likely the fear will actualize.
+
+Humor is valuable in public speaking; it is a way of just being at one with the humanness of the audience, and discovering their compassion. 
+
+With more experience, you will inevitably get better, but only if you choose to start, and you can only start if you choose to drop your ego, have humility, and laugh at yourself when you're failing in the beginning. The reward for the willingness to be laughed at is continued, sustained, effortless, compounding success.  
+
+### The Healing Effect
+
+Jerry Jampolsky wrote a book titled, "Love is letting go of Fear". The title itself is true.
+
+Think about it. When I was paranoid, Sutanay responded with openness and empathy. And it worked.
+
+High levels of consciousness are capable of healing, transforming, enlightening, and inspiring others. People like Mother Teresa, MLK, and Roger Banister are examples.
+
+By letting go of fear and letting go of the resistance of love, our capacity to give love increases progressively, and the loving energy has the capacity to heal ourselves as well as others.
+
+The only drawback of healing someone through conscious loving thoughts is that illness returns as soon as the highly conscious person leaves, unless the sick person learns to elevate their own consciousness.
+
+Although hospital beds are filled with patients who have families wishing their recovery, many of these wishes/thoughts are based in fear, anguish, guilt, and ambivalence.
+
+It was Jesus who said that with faith, we can move mountains and have the power to heal.
+
+The saint, or person of high consciousness, is defined by one who has removed the clouds of negativity and radiates the full healing power of the sun.
+
+It's the same power that comes from the unconditional love of a mother or father.
+
+This same love is intrinsically within us, and this love can be **rediscovered** by letting go of fear.
+
+### Owning the "Shadow"
+
+Carl Jung said that the self cannot become healed and whole unless we look at and acknowledge the shadow.
+
+This shadow, or "collective unconscious" represents everything that we most dislike admitting about ourselves (the term, "collective unconscious" means that *everyone* has these thoughts and fantasies).
+
+There is nothing secret about the fears that we all hide--fear of appearing dumb, ugly, unlovable, and a failure.
+
+The average human would much rather project his shadow onto the world, condemn it, and see it as evil, thinking that his problem is to battle with evil in the world.
+
+In actuality, the problem is merely to **acknowledge**, non-judgementally, the presense of such thoughts and impulses within ourselves. 
+
+By acknowledging non-judgementally, they become quiet. Once they are quiet, they no longer unconsciously run us.
+
+The fear of the unknown is really the fear of the depths of our consciousness, or our shadow.
+
+In addition to love, another helpful cure is...HUMOR! :)
+
+Once looked at and acknowledged, the shadow no longer has any power.
+
+It is only our fear of these thoughts and impulses that give them any power, much like how reactive fear to a bully only makes the bully stronger, since that is what he's expecting.
+
+Once we become aquatinted with our shadow, we no longer have to project our fears upon the world, and they begin to evaporate rapidly.
+
+This is what makes people so attracted to action, violent films and TV programs, like films by Quentin Tarantino, Serial Killer documentaries, etc.
+
+Because what is being acted out, on screen, are all the forbidden unconscious fantasies in our own psyche.
+
+Once we are willing to look at the same internal films that represent our shadow within ourselves, the attraction towards these violent forms of entertainment disappears.
+
+The unconscious mind is not polite. It thinks of gross concepts.
+
+Look deep within yourself next time somebody cuts you off in traffic, and picture what you would really do to that person if you were strictly honest with yourself and did not censor the images coming to mind. That's the way the unconscious thinks.
+
+The reason why a sense of humor is useful because these images are comical to look at. There is nothing awful about it, just the way the unconscious handles images. It jsut means that you have gotten honest and faced how the human animal mind operates in this dimension.
+
+It takes a lot of energy to keep the shadow buried and to suppress our multitude of fears. The result is energy depletion. On the emotional level, it is expressed as an inhibition of the capacity to love.
+
+In the world of consciousness, like attracts like, so we can either attract fear or love. You choose.
+
+So, it seems clear that fear is not the way, yet, most people cling to fear. Why?
+
+We have conscious fantasy that the fear is keeping us alive. Recall from chapter 3 the anatomy of emotions, and how emotions are connected with what we *believe* will ensure our survival, not with what *actually* will. Fear is associated with our primitive survival mechanisms. We believe that we become vulnerable if we let go of fear.
+
+But as we just mentioned, like attracts like. Fear is what binds us to the real dangers of life. It is fear and guilt that become actualized from the mind and hurt us in the long run.
+
+Does that mean we stay unprotected and take hasty risks? Certainly not. Instead, take the same protective actions out of love rather than fear. It's the same difference between passion and aggression--one is based on love while another on fear.
+
+### Guilt
 
 # Chapter 7: Introduction
 

@@ -767,6 +767,19 @@ We look for security to the Self, which is eternal, instead of the small self, w
 # Chapter 6: Fear
 
 ## Summary
+The fact that we can face fear and surrender it permits us to move up instantly to courage; on the other side of fear is new heights of consciousness.
+
+With more experience, you will inevitably get better, but only if you choose to start, and you can only start if you choose to drop your ego, have humility, and laugh at yourself when you’re failing in the beginning. The reward for the willingness to be laughed at is continued, sustained, effortless, compounding success.
+
+By letting go of fear and letting go of the resistance of love, our capacity to give love increases progressively, and the loving energy has the capacity to heal ourselves as well as others. This love is intrinsically within us, and this love can be rediscovered by letting go of fear.
+
+We have conscious fantasy that the fear is keeping us alive. Recall from chapter 3 the anatomy of emotions, and how emotions are connected with what we believe will ensure our survival, not with what actually will. Fear is associated with our primitive survival mechanisms. We believe that we become vulnerable if we let go of fear.
+
+But as we just mentioned, like attracts like. Fear is what binds us to the real dangers of life. It is fear and guilt that become actualized from the mind and hurt us in the long run.
+
+Does that mean we stay unprotected and take hasty risks? Certainly not. Instead, take the same protective actions out of love rather than fear. It’s the same difference between passion and aggression–one is based on love while another on fear.
+
+99% of guilt has ZERO to do with reality. Reprogram your own mind.
 
 ## Notes
 
@@ -774,7 +787,7 @@ As we let go of fear, we find that behind it, there is often anger at the object
 
 The fact that we can face fear and surrender it permits us to move up instantly to courage.
 
-#### Fear of Public speaking
+### Fear of Public speaking
 
 When we stop being afraid, we notice that it's just a feeling. Or, as Teddy Roosevelt said:
 
@@ -902,13 +915,49 @@ We become aware of all the guilt-mongers in life, and ask ourselves: "could we n
 
 Is guilt the only reason why we don't stab our neighbors?
 
-
-
-# Chapter 7: Introduction
+# Chapter 7: Desire
 
 ## Summary
 
 ## Notes
+
+Here again, the essential point of freedom is whether we have chosen **consciously** to fulfill a certain want, or whether we are being blindly run by **unconscious** programs and beliefs.
+
+### Desire as an obstacle
+
+The main illusion we fall victim to is the following statement:
+"The only way I'll get what I want is by *desiring* it; if I let go of my desires, then I won't get what I want"
+
+The reality is, the reverse is true: desire can preclude our attempt to actually obtain that which we seek.
+
+Why? Because the way something comes into our life is because we have chosen it. It was the result of intention. The desiring was actually the obstacle to its achievement.
+
+With intention, we can achieve that which we sought out to get, *in spite of* desire.
+
+To say you desire something means you are not already in possession of it.
+
+Desire blocks receiving and results in fear of not getting. The energy of desire is, in essence, a denial that what we want is ours for the asking.
+
+This is in contradiction with the classical programming of the world. We are used to associating hard work with classical "Protestant work ethic"--qualities such as self-sacrifice, asceticism, will power, effort, etc.
+
+What the author suggests instead is to operate in a freer state: acknowledge nonjudgmeltally and let go of desire. In a freer state, that which is chosen manifests in our life effortlessly. We surrender the desire of emotion and surrender the resistance to merely picturing ourselves already achieving our goal, and allowing it to happen because we see that it is already ours.
+
+> It's a shift in our we label the universe. 
+
+For some people, they view the universe as negative and reluctant, and they therefore reap that which they sow. On the other hand, those on a freer state who operate at a higher level of consciousness, view the universe as loving, giving, and unconditionally approving--is is ours for the asking.
+
+Although the world may appear stingy and hostile towards other people, there is zero reason why we should buy into this paradigm. (remember the second law of consciousness? We are only subject to a negative thought or belief if we *consciously* say that it *applies* to us).
+
+Totally surrendering desire means being okay if you finally obtain the goal, **AND** being okay if you *never* obtain the goal. It's being content with your inner self, understanding that it's not the external world that builds us up, but our inner work.
+
+It means giving up the sentimental idea of self-sacrifice, pain, and suffering that comes with achieving goals.
+
+Society especially will fight this. If we suddenly becomes successful almost effortlessly, people are programmed to be envious. It really annoys them that we didn't have to go through anguish, pain, and suffering to get here. They *want* to believe that success must come at the cost of pain and suffering.
+
+### Having--Doing--Being
+
+
+
 
 # Chapter 8: Introduction
 

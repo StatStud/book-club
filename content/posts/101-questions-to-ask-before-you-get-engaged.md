@@ -5,7 +5,7 @@ draft: false
 tags: []
 ShowToc: true
 cover:
-    image: placeholder.png
+    image: 101-questions-to-ask-before-getting-engaged.png
     alt: ""
     caption: ""
 ---

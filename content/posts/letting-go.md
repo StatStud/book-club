@@ -45,6 +45,9 @@ cover:
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
 - laws of consciousness: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love
+- Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
+- If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
+- So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
 
 # Preface and Foreword
 ## Notes
@@ -919,6 +922,18 @@ Is guilt the only reason why we don't stab our neighbors?
 
 ## Summary
 
+If you desire something, then you admit that it is outside of your and something you must work to obtain. Desire blocks receiving and results in fear of not getting. The energy of desire is, in essence, a denial that what we want is ours for the asking.
+
+Although the world may appear stingy and hostile towards other people, there is zero reason why we should buy into this paradigm. (remember the second law of consciousness? We are only subject to a negative thought or belief if we *consciously* say that it *applies* to us). It's a shift in our we label the universe. 
+
+Totally surrendering desire means being okay if you finally obtain the goal, **AND** being okay if you *never* obtain the goal. It's being content with your inner self, understanding that it's not the external world that builds us up, but our inner work. It means giving up the sentimental idea of self-sacrifice, pain, and suffering that comes with achieving goals.
+
+Just choose to *be* that person and let go of the block of desiring to be that way.
+
+The way we become that exciting person whom people want to know is to simply *picture*, in your mind, the kind of person we want to be and surrender all the negative feelings and blocks that prevent us from being that.
+
+"What we hold in mind tends to manifest"
+
 ## Notes
 
 Here again, the essential point of freedom is whether we have chosen **consciously** to fulfill a certain want, or whether we are being blindly run by **unconscious** programs and beliefs.
@@ -956,14 +971,85 @@ Society especially will fight this. If we suddenly becomes successful almost eff
 
 ### Having--Doing--Being
 
+The general progression of the levels of consciousness, from lowest to highest, is to move from: (1) havingness (2) doingness (3) beingness
+
+At the lower levels of consciousness, it is what we *have* that counts:
+- it is what we *have* that we desire
+- it is what we *have* that we value
+- it is what we *have* that gives us our self-image of worth and position in the world
+
+Once our basic needs are fulfilled, we have the power to provide for the needs of others and our dependents; the mind begins to becomes more interested in *doing*.
+
+It's at this point that we begin to move to a different social set, in which what we *do* in the world is the basis for our value and how others rate us.
+
+As our consciousness grows, we see that loving service to others automatically results in fulfillment of our own needs (this does not mean sacrifice; service is not the same as sacrifice).
+
+People now seek our company; not because of what we *have*, not because of what we *do*, but because of what we have *become*.
+
+Because of the quality of our presence, people just want to be around us and experience us. We become described as a charismatic person.
+
+This level of beingness is typical of self-help groups. 
+
+In self-help groups, no one is interested in what others do in the world or what they have. They are only interested in whether or not we have achieved certain inner goals (honesty, openness, sharing, lovingness, willingness, humility, etc.)
+
+### Glamour
+
+If we begin to look at something we want, we begin to distinguish between the thing itself versus its *glamour*--we observe nonjudgementally the disparity between what a thing is, in it of itself, and the *glamour* that we have attached to it, which leads to disillusionment.
+
+This happens frequently, when we chase a goal, finally achieve it, and then realize how futile that chase was compared to what we get.
+
+Why does this happen? Glamour. The thing itself does not coincide with out pictures of it.
+
+The man who works a corporate job just to get to the top is upset when he realizes that he does not get admiration, but instead, a whole bag of viciousness, competition, envy, and dishonest manipulation that occur to people in power, including paranoid attacks by competitors. He finds that his energy is so drained that he has no energy left over for his personal life; his relationships are impaired. At the end of it all, when he retires or passes away, no one will even remember who previously held his position.
+
+This is exactly what is in line with what Earl Nightgale speaks of:
+
+Just choose to *be* that person and let go of the block of desiring to be that way.
+
+The way we become that exciting person whom people want to know is to simply *picture*, in your mind, the kind of person we want to be and surrender all the negative feelings and blocks that prevent us from being that.
+
+"What we hold in mind tends to manifest"
+
+### The power of Inner Decision
+
+Your belief system is everything; never sell yourself short.
+
+What do we mean by this? It means catching your habitual self limiting beliefs and transcending them.
+
+You're not "awkward"--you simply have not practiced charisma enough. In this phrasing, the opportunity to become a people's magnet is within your reach if your surrender your limiting beliefs that it's beyond you and accept the belief that you can change. 
+
+> Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
+
+The corollary is obviously true:
+
+> If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 
 
 
-# Chapter 8: Introduction
+# Chapter 8: Anger
 
 ## Summary
 
 ## Notes
+
+### Using Anger Positively
+
+Byproduct of anger is action--it can either be used constructively for our good or destructively for our downfall.
+
+### Self-Sacrifice
+
+That which we want, desire, and insist upon from another person is felt by them as pressure. (this applies to dating as well!). They will, unconsciously resist. The resistance is because pressure is always felt by us as a denial of choice--we don't want to feel obligated to do shit!
+
+> So, the issue with discipline, is that it can lead to self-sacrifice, and self-sacrifice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
+
+In addition to perspective, the way out of this type of anger is to radically change how we view what we do for others--a gift, with no strings attached, given from our overflowing cup of abundance. 
+
+We can choose to experience the joy of being generous with others as its own reward.
+
+### Acknowledgement 
+
+
+
 
 # Chapter 9: Introduction
 

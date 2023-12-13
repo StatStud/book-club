@@ -48,6 +48,9 @@ cover:
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
+- One of the great secretes of relationship is acknowledgement, and the behavior of others towards us always includes a hidden gift. Even if that behavior appears negative, there is something in it for us.
+- If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
+- If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
 
 # Preface and Foreword
 ## Notes
@@ -1048,7 +1051,41 @@ We can choose to experience the joy of being generous with others as its own rew
 
 ### Acknowledgement 
 
+One of the great secretes of relationship is acknowledgement, and the behavior of others towards us always includes a hidden gift.
 
+Even if that behavior appears negative, there is something in it for us.
+
+> Very often, that "something" appears in the form of a signal to us to becomes more away.
+
+Side note: This is EXACTLY my experience with *listening* to Chance. We both have never started businesses, yet I used pride and a stable job to think I was somehow any more knowledgeable than him
+
+> If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
+
+Side note: GOOD SHIT! This is exactly [the quote](https://practicalityandsimplicity.com/posts/eyes-as-mirrors/) "some people call the eyes the windows of the soul, when they are really a mirror".
+
+They are *reflecting back* to us what we have failed to acknowledge within ourselves.
+
+This provides much opportunity for inner work, but to do this, we have to resist the temptation to indulge in making ourselves and others "wrong". 
+
+Side note: again, this is EXACTLY what [I wrote about](https://practicalityandsimplicity.com/posts/never-get-defensive-again/) before.
+
+This is much harder than you may think. One way we force ourselves out of unsatisfactory situations is by making ourselves or the situation "wrong". 
+
+Instead of merely choosing to find a better job, our smaller-self makes the job, boss, and colleagues "wrong".
+
+But how much *easier* would it have been had we just *chosen* to move on to a better situation?
+
+> Because of our sense of obligation, guilt is very often the block to this simpler way--because we have benefited from the situation, we feel guilty about leaving it.
+
+As a result, the unconscious ingeniously has created the whole mechanism of wrongness to force us out of dead-end situations. But reporting to "wrongness" is simply a denial of our own freedom to choose.
+
+Side note: I've done this. Blaming others has "incompetent" just so I can feel justified in leaving
+
+The best habit of improving your relationships is one of acknowledgement. Acknowledge people when you see them; acknowledge them when they call or text you ("thanks for reaching out"); acknowledge them because it feels great when you yourself are acknowledged.
+
+By simply acknowledging people, within a matter of days your relationships will be radically transformed.
+
+### Expectations 
 
 
 # Chapter 9: Introduction

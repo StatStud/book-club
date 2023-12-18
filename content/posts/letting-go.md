@@ -44,13 +44,14 @@ cover:
 - Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
-- laws of consciousness: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love
+- **laws of consciousness**: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
 - One of the great secretes of relationship is acknowledgement, and the behavior of others towards us always includes a hidden gift. Even if that behavior appears negative, there is something in it for us.
 - If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
 - If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
+- The hallmark of courage is two words: "I can"
 
 # Preface and Foreword
 ## Notes
@@ -1033,6 +1034,8 @@ The corollary is obviously true:
 
 ## Summary
 
+
+
 ## Notes
 
 ### Using Anger Positively
@@ -1086,19 +1089,108 @@ The best habit of improving your relationships is one of acknowledgement. Acknow
 By simply acknowledging people, within a matter of days your relationships will be radically transformed.
 
 ### Expectations 
+> When we stop pressuring others others with expectations, we create an opening for them to spontaneously respond positively to us.
 
+We can instead offset resentments by re-labeling what we have done for others: from sacrifice to love
 
-# Chapter 9: Introduction
+### Chronic Resentment
+
+Another thing that dissipates anger is our mere willingness to relinquish it. Willingness is our overall decision to find a better way; to stop relying on anger, and to move up to courage and acceptance.
+
+Ask any martial arts expert and they will tell you the same thing: anger indicates weakness and vulnerability.
+
+What's the point of surrounding ourselves with negative thought forms about those we view as enemies? Why go out of our way to hold onto them as enemies by stockpiling resentments and negativity in ourselves? We never know whom, in a later chapter of life, we are going to need as a friend.
+
+The letting go technique frees us from having to keep track of the "wrongs" that people have done.
+
+The negative environment you're in will continue until you relinquish your inner anger. Then, suddenly, people with that same anger quality will disappear from our life.
+
+# Chapter 9: Pride
 
 ## Summary
 
 ## Notes
 
-# Chapter 10: Introduction
+The prideful feeling of "I have all the answers", blocks our growth and development.
+
+### Vulnerability of Pride
+
+The prideful person is constantly on the defense because of the vulnerability of image, inflation, and denial. It is energy intensive because the prideful are constantly preoccupied with defending their lifestyle, image, beliefs, and values.
+
+That which inflates the ego does not result in inner strength; it actually increases the overall level of fear.
+
+This introduces the next law of consciousness:
+
+> Defensiveness invites attack
+
+This is what separates self-esteem from pride: Self-awareness of one's true value is characterized by **lack of defensiveness**.
+
+A higher feeling state than pride is that of love. If we *love* our friends, family, country, accomplishments, and assets (rather than be prideful of them), it means that there is no question of their worth in our mind; we no longer have to be on the defensiveness.
+
+When true recognition and knowledge replace opinion (which is part of pride), there is no room for argument. 
+
+Our sheer love and appreciation for something is a solid position that cannot be assailed.
+
+### Humility
+
+The attempt to suppress pride out of guilt does not work.
+
+It is not anymore helpful to label the energy of pride as "sin" and to suppress it in ourselves out of guilt, or pretend that we do not experience it.
+
+### Joy and Gratitude
+
+We can recognize our proneness to pain by looking at the kind of reactions we are hoping to elicit from others by our choices and behavior.
+
+This includes mannerisms, clothing, and the possessions we choose, the address which we live, the home we have.
+
+The opposite of prideful acquisitiveness (which brings envy, and thus fear and defensiveness) is simplicity. Simplicity does not mean poverty of possessions; rather it's a state of mind. Having lots of money, holding it in investments, and not flaunting it, while wearing basic clothing, dismisses envy and criticism.
+
+Possessiveness and attachment occur as a consequence of pride.
+
+### Opinions
+
+We can reduce our vulnerability by letting go of the desire to possess; instead of saying "mine", we can use the word "a"--saying "a shirt" instead of "my shirt".
+
+Likewise, if we view one of our thoughts as "an opinion" rather than "my opinion", or "a philosophy of living" versus "my philosophy of living", the feeling tone changes. If opinions are viewed only as "an opinion", then there is no longer the vulnerability to prideful anger. Remember, we don't own ideas, only the execution of our actions.
+
+Everyone and their mother has an opinion about everything. So what? Do you really want to spread out your vulnerability to attack with all the passing thoughts you call "yours"?
+
+> If we tell somebody that we do something because we get enjoyment out of it, there is really nothing much they can say about it, since it's literally a preference. But if we infer that we do it because we are *right*/*superior* in doing it, we will instantly see their hackles go up because they, also, have an opinion on what is right.
+
+> Our values are preferences. We hold them because we love them, enjoy them, and get pleasure from them. If we hold them in this context, we will be left in peace to enjoy them.
+
+The reason pride arouses attack is because of the inference of being "better than".
+
+
+# Chapter 10: Courage
 
 ## Summary
 
 ## Notes
+
+### The Courage to Let Go
+
+The hallmark of courage is two words:
+
+> "I can"
+
+It's easy to jump from *any* of the lower levels of energy up to courage by merely affirming our courage to look at that which scares us. 
+
+Often, what scares us can be our own feelings and our ability to handle them.
+
+But the mere *willingness* to look at and begin to handle them increases our self-esteem.
+
+Side note: This is exactly [what Jordan Peterson talks about](https://www.youtube.com/shorts/jDMDfFIkKWU).
+
+We all know it takes courage to face fear, which is why part of the human spirit looks with admiration and nobility at those who exhibit courage in the face of fear.
+
+> Despite all of their negative programming and fears, courageous people go forward in life, with **ZERO** guarantee and knowledge that things are going to get better
+
+Therefore, courage increases our self-respect and brings us the respect of others.
+
+There is literally no room for shame when our courage brings the respect of others.
+
+### Self-Empowerment 
 
 # Chapter 11: Introduction
 

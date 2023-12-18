@@ -1192,6 +1192,32 @@ There is literally no room for shame when our courage brings the respect of othe
 
 ### Self-Empowerment 
 
+On the level of courage, the emphasis is on **doing**/**ACTION**.
+
+The belief that, if we are *willing* to put fourth effort, we can obtain what we want.
+
+> People on the level of courage are the doers of the world.
+
+Because we are self-sufficient, we have the ability to give to others without sacrificing, because other people are no longer being looked at primarily as a means of help, survival, or support.
+
+When we are in a state of courage, we know that we have the capacity to make a difference in the world, not just gain something from it for ourselves.
+
+Because of the inner confidence, we are much less concerned with security.
+
+With courage, our sense of self-worth is not diminished by looking at areas that need improvement. As a result, energy, time, and effort are put into self-improvement.
+
+With courage, there is capacity to look within ourselves to examine our belief systems, ask questions, and seek new solutions. Rollo May [writes about this](https://bookswithalex.com/posts/mans-search-for-himself/#courage-to-see-truth) to where he dedicates an entire chapter on courage. May wrote:
+
+"
+Nietzsche one proclaimed “error is cowardice”, meaning that the reason we do not see truth is because we do not have enough courage. 
+
+To find the truth, and consequently the answers to your questions, one must have the courage to venture–whether one arrives at the best answer depends very intimately on the degree of one’s maturity and courage. The finding of truth hinges greatly on the investigator’s inner qualities of probity and courage.
+
+Truth is often missed not because it was *unsought*, but because the intention always was to *find again* some preconceived opinion–something that looks or sounds *familiar–or* at least not to wound some favorite idea. With this intention, truth is often missed.
+
+To seek truth is to risk discovering what one hates to see
+"
+
 # Chapter 11: Introduction
 
 ## Summary

@@ -1218,11 +1218,35 @@ Truth is often missed not because it was *unsought*, but because the intention a
 To seek truth is to risk discovering what one hates to see
 "
 
-# Chapter 11: Introduction
+There is a willingness to experience uncertainty, periods of confusion, and temporary upset because, underneath the temporary discomfort, we have a long-term transcendent goal.
+
+### Awareness of others
+
+Because of the letting go of much negativity, there is a desire and a capacity to love and to have loving relationships. There is balance between work, enjoyment, and love, without the necessity of over-ambition and "workaholism". 
+
+People at this level often state that they want jobs which will be of some benefit to the world; they want to feel that there is more meaning to their job than just a salary.
+
+Personal growth is important, and there is awareness on this level that our life is either positively or negatively influencing those around us.
+
+Through courage, the world is viewed as challenging and therefore presenting opportunities for growth, development, and new experiences.
+
+Through courage, success breeds success, and the rate of success becomes increasingly faster.
+
+# Chapter 11: Acceptance
 
 ## Summary
 
 ## Notes
+
+### Everything is perfect as it is
+
+The way people appear to us from this space is that everyone is actually doing the best they can with what they have at the moment.
+
+We see that all of life is evolving towards its perfection, and we are in sync with the laws of the universe and consciousness.
+
+When we are in the lower energy field, we seek to obtain love externally; when we are at acceptance, we seek to give love abundantly from within ourselves; many of the blocks to it's awareness have been surrendered.
+
+### Acceptance of Self and Others
 
 # Chapter 12: Introduction
 

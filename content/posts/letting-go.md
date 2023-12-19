@@ -1248,7 +1248,25 @@ When we are in the lower energy field, we seek to obtain love externally; when w
 
 ### Acceptance of Self and Others
 
-# Chapter 12: Introduction
+Another characteristic of the level of acceptance is that we are no longer concerned with moralistic judgement--what is "good" and "bad". 
+
+It simply becomes obvious with what "works" and "doesn't work"--what is constructive and destructive.
+
+In replacing "bad" with destructive, we remove guilt. We recognized that, if we had known better, we would have done so differently ("forgive them lord, for they do not know what they are doing"--Luke 23:34).
+
+There is no longer neediness in the form of dependency from others, because there is nothing we feel we need to "get" from them. 
+
+Although negative thoughts and feelings do arise, they are less and less frequent, and are handled with great ease.
+
+### Personal Responsibility
+
+There is awareness that all negative feelings are our own problem, and there is no longer outside of ourselves for their resolution.
+
+There is an earnest regard for the growth of our consciousness, often manifested in meditative practices, spiritual retreats, humanitarian efforts, and the like.
+
+What becomes increasingly important is that we are *becoming*, not what we *have* or *do*.
+
+# Chapter 12: Love
 
 ## Summary
 

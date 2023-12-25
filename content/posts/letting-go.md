@@ -44,7 +44,7 @@ cover:
 - Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
-- **laws of consciousness**: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack
+- **laws of consciousness**: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
@@ -1271,6 +1271,58 @@ What becomes increasingly important is that we are *becoming*, not what we *have
 ## Summary
 
 ## Notes
+
+### Love in everyday life
+
+That which we freely give to life flows back to us because we are equally part of that life.
+
+Like ripples on the water, every gift returns to the giver.
+
+What we affirm in others, we actually affirm in ourselves.
+
+> Once we become willing to give love, the discovery quickly follows that we are surrounded by love and merely don't know how to access it.
+
+### Love heals
+
+> Once you become loving, there are certain things you can never do again.
+
+Lovingness is a way of being that transforms everything around you because of the radiation of that energy. As a result of the misuse of love in popular culture, people are skeptical if you tell them you love them. Therefore you love such people without telling them.
+
+### Unconditional love
+
+Gratitude for the state replaces pride in accomplishment.
+
+Out of humility, all opinions about others are surrendered because we realize that no one can help being what or who they are. Love knows this truth and takes no position.
+
+Unconditional love is a love that doesn't expect anything from others.
+
+When we become loving, we have no limits or demands on others that they should be a certain way in order to be loved. We love them no matter how they are. Even if they're obnoxious!
+
+We feel sorry for the criminals that they saw a life of crime as their best option.
+
+When love is unconditional, there is no attachment, expectation, hidden agenda, strategy, or bookkeeping of who gives what to whom.
+
+It is given without requirements. No strings attached. We surrender all conscious and unconscious expectations of other people.
+
+Even when people make mistakes, we love them. A key to making love unconditional is the willingness to forgive.
+
+With forgiveness, events and people are re-contextualized and re-labeled as simply "limited", rather than "bad" or "unlovable".
+
+With humility, we are willing to relinquish pur perception of the past.
+
+We pray for a miracle to see the truth about the situation or person, and we surrender all of our opinions on the matter.
+
+We analyze our payoffs from keeping our old perception of what occurred, and we let go of each payoff such as:
+- the pleasure of self-pity
+- the ego's desire to be right
+- our resentment and feeling "wronged"
+- victimized identities
+
+### Oneness
+
+It's not guaranteed that our external behavior will change when we increase our consciousness, BUT what does become apparent, at least to us, is the absence of impulsivity and reactivity in our external behavior and habits.
+
+
 
 # Chapter 13: Introduction
 

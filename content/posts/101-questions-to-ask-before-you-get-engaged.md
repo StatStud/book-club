@@ -21,6 +21,7 @@ cover:
 # What do I hope to learn AND take ACTION on after reading this book?
 
 # What brought you to reading this book? How did you hear about it?
+- I read this book after Patrick-Bet David mentioned he and his current wife read the book together before getting married.
 
 # What are my assumptions before reading this book?
 

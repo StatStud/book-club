@@ -1324,13 +1324,38 @@ It's not guaranteed that our external behavior will change when we increase our 
 
 
 
-# Chapter 13: Introduction
+# Chapter 13: Peace
 
 ## Summary
 
 ## Notes
 
-# Chapter 14: Introduction
+### The profound impact of Peace
+
+In peace, there is no longer conflict. There is a total absence of negativity that's replaced with an all-encompassing lovingness that is experienced as serenity, tranquility, timelessness, fulfillment, etc.
+
+### Silent Transmission
+
+### Surrender to ultimate reality
+
+The hallmark of this level is desirelessness--to be without external desire.
+
+There is no need to want for anything because everything manifests itself spontaneously and automatically, without conscious effort or will.
+
+No words seemed necessary. Communication occurred with anyone on a level of silence.
+
+The responsibility for having chosen to experience life once again as an individual was accepted, yet without being at the effect of a belief in individual existence.
+
+An impressive body of research in many laboratories has demonstrated that the brain perceives by a means of sophisticated mathematical analysis of frequency pattern--we are vibrational beings!
+
+These findings have have resulted in what we know today as the holographic paradigm, which states that everything in the universe is connected with everything else, including the human mind.
+
+Because each part contains the whole, each individual human mind is capable of reflecting the entire universe.
+
+Carl Pribram (Stanford Neuroscience) and David Bohm (University of London) have both come to the following theory: Our brains mathematically construct reality by interpreting frequencies from another dimension, a realm of meaningful, patterned, primary reality that transcends time and space. The brain is, therefore, a hologram interpreting a holographic universe.
+
+
+# Chapter 14: Reducing Stress and Physical Illness
 
 ## Summary
 

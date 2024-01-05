@@ -44,7 +44,7 @@ cover:
 - Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
-- **laws of consciousness**: (1) We become what we think about (2) we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe
+- **laws of consciousness**: (1) We become what we think about (2) we are subject only to what we hold in mind--we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
@@ -52,6 +52,7 @@ cover:
 - If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
 - If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
 - The hallmark of courage is two words: "I can"
+- Here's the key when using the letting go technique for problem solving: Don't look for answers; instead, let go of the feelings behind the question
 
 # Preface and Foreword
 ## Notes
@@ -1361,23 +1362,133 @@ Carl Pribram (Stanford Neuroscience) and David Bohm (University of London) have 
 
 ## Notes
 
-# Chapter 15: Introduction
+### Psychological Aspects of Stress Proneness
+
+The more emotional pressure that is surrendered and let go (e.g. through letting go of resentments, suppression, and repression), the less vulnerable we are to the stress response and stress-related diseases.
+
+The main stress to the majority of us most of the time is not due to external stimuli, but to pressure of our own suppressed emotions.
+
+### Mental Aspects of Stress
+
+### Energy System Response to Stress and the Acupuncture System
+Acupuncture, check it out.
+### Interventions to Alleviate Stress
+
+Meditation 
+
+### Kinesiologic Testing
+
+A negative thought or feeling instantly weakens the body and creates an imbalance of the body's energy flow.
+
+### Kinesiologic Testing Technique
+
+# Chapter 15: Relationship between the mind and body
 
 ## Summary
 
 ## Notes
 
-# Chapter 16: Introduction
+# Chapter 16: The benefits of letting go
 
 ## Summary
 
 ## Notes
 
-# Chapter 17: Introduction
+### Emotional Growth
+
+We discover that the limiting thoughts and negative beliefs, which had naively been held to be true, were all merely the result of accumulated negative feelings.
+
+When the feeling is let go, then the thought pattern changes from "I can't" to "I can" to "I'm happy to".
+
+Entire areas of life can open up.
+
+The rate of emotional growth reported by those who use the mechanism of surrender is related to the consistency with which they surrender their negative feelings--independent of one's age.
+
+The energy that has been long holding down the negativity is now free for constructive uses; consequently, there is an increase in available energy for creativity, growth, work, and interpersonal relationships.
+
+The quality and enjoyment of these activities increase.
+
+### Problem solving
+
+Here's the key when using the letting go technique for problem solving: Don't look for answers; instead, let go of the feelings behind the question
+
+> Don't look for answers; instead, let go of the feelings behind the question
+
+When we surrender the feeling behind a question, we can let go of any other feelings that we might have also have about what seems to be the problem. The answer then will be waiting for us in plain sight, and we won't have to look for it.
+
+Try it out: Take several problems of long standing and stop looking for the answer.
+
+### Lifestyle
+
+"I can't"s are surrendered.
+
+### Resolution of Psychological Problems: Comparisons with Psychotherapy
+
+The goal of psychotherapy is readjustment of the ego to a more healthy balance. The objective is to replace unsatisfactory mental programs with more satisfactory ones.
+
+The ultimate aim of of letting go and surrendering is total freedom. The objective is the elimination of limiting mental and emotional programs, as well as the ego itself; it is the attainment of an unconditioned mind and, ultimately, transcendence of the mind itself to higher states of consciousness of love and peace.
+ 
+The two systems are based on different paradigms of reality.
+
+Psychotherapy aims at the amelioration of neurotic patterns; letting go is designed to undo the underlying cause of all neurotic formation. Psychotherapy seeks for an improvement in neurotic balance, while letting go eliminates it all together.
+
+A limitation of most psychotherapy is that the therapist is constricted to what the world calls a healthy, functioning ego. In this paradigm, a healthy patient is considered to be one who shares the same illusions and limitations condoned by society and the therapist.
+
+By contrast, the purpose of letting go is to transcend the illusions of the world and reach the ultimate truth behind it (self-Realization) and to discover the very basis of the mind itself, the source of all thought and feeling.
+
+> The goal of letting go is the elimination of the very source of all suffering and pain.
+
+All negative feelings stem from the same source; when enough negative feelings have been relinquished, that source reveals itself.
+
+
+# Chapter 17: Transformation
 
 ## Summary
 
 ## Notes
+> "Before reading on, make an inner decision to let go of resisting higher levels of consciousness. This means to make a decision to *stop denying* the higher levels to yourself, and to make a decision to let go of all blockers to happiness, success, health, acceptance, love, and peace."
+
+By doing this, the deed is already done, for you have set the whole experience into a context that will automatically begin to unfold.
+
+### Health
+The average mind is constantly worrying about defending the body from harm; a mindset that is thinking about harms.
+
+Underlying all of these concerns is the unconscious equation "I am a body", which is very limited level of consciousness.
+
+Be aware of how much energy is drained by this constant preoccupation with the body. Our mind has been continuously programmed with countless belief systems about the body.
+
+As we have discussed, these vulnerabilities are merely product of the mind, and the body will react to what is held in the mind.
+
+We're not just a body. 
+
+> "I am an infinite being, not subject to ---".
+
+We put into the blank space whatever disease or substance the mind has been programmed to see as a possible danger.
+
+> A surrendered person can eat anything or go anywhere and is no longer subject to fears of contamination, pollutants, drafts, germs, EM-Frequencies, carpet, smoke, etc.
+
+Side note: This is the new me. When I went out with friends, I was able to eat a burger while still preferring my usual diet. Guess what: I survived, and I did not any emotional backlash.
+
+This is a shift in the following way:
+
+> "I *am* a body" --> "I *have* a body"
+
+It is not the body that is experiencing itself, rather the mind that is experiencing the body.
+
+The body doesn't have any sensation; only the mind is capable of such function.
+
+This all founds obvious, but it's an important semantic phrasing for our mental narratives. 
+
+The focus shifts from defending the body, to using the mind.
+
+A person who is free of negativity and guilt tends to be free of disease and suffering.
+
+> Health and well-being are generally the automatic consequence of letting go of guilt and other negativities, as well as the letting go of our resistance to the positive states of health and wellbeing. 
+
+## wealth
+
+
+
 
 # Chapter 18: Introduction
 

@@ -44,7 +44,7 @@ cover:
 - Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
-- **laws of consciousness**: (1) We become what we think about (2) we are subject only to what we hold in mind--we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe
+- **laws of consciousness**: (1) We become what we think about (2) we are subject only to what we hold in mind--we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe (6) The unconscious brings to us what it thinks we deserve (7) Our feelings and thoughts always have an effect on other persons and affect our relationships, whether these thoughts or feelings are verbalized, expressed, or kept in our mind. The overall attitudes we hold about another person are influencing that other person's feelings and attitudes about us whether we express them or not
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
@@ -53,6 +53,8 @@ cover:
 - If we constantly follow this procedure, we will come to the awareness that **everyone** in our life is acting as a mirror.
 - The hallmark of courage is two words: "I can"
 - Here's the key when using the letting go technique for problem solving: Don't look for answers; instead, let go of the feelings behind the question
+- More important than money itself are the **emotional gratifications** that we *hope* will be ours with the use of that money.
+- It will also dawn on us that the goals which we thought money would bring us *can be achieved directly*
 
 # Preface and Foreword
 ## Notes
@@ -1485,16 +1487,74 @@ A person who is free of negativity and guilt tends to be free of disease and suf
 
 > Health and well-being are generally the automatic consequence of letting go of guilt and other negativities, as well as the letting go of our resistance to the positive states of health and wellbeing. 
 
-## wealth
+### wealth
+
+To the mind that chooses to hold limiting belief systems and negative thoughts, money is a "problem".
+
+The end result of all negativity is a feeling of financial limitation, lack, and deprivation.
+
+In this belief system, the feeling "I can't" due to fear and limitation is often skirted by simply avoiding the whole issue ("I won't") of money and resigning oneself to a low social economic status of "inevitable".
+
+> The unconscious brings to us what it thinks we deserve.
+
+Here's a great exercise mentioned in this chapter:
+1. grab pen and paper
+2. write "money" as the header of the paper
+3. list down what money means in al avenues of life
+4. for each listed item, write down the feelings associated with those
+5. for all the negative feelings, begin to surrender them
+
+We become surprised to discover that money, in and of itself, is **NOT** the most basic issue.
+
+> More important than money itself are the **emotional gratifications** that we *hope* will be ours with the use of that money.
+
+For example, one of my own listed items was respect. We realize now that it isn't money itself that we're interested in, but it is our own **self-respect** and inner worth.
+
+> It will also dawn on us that the goals which we thought money would bring us *can be achieved directly*
+
+The higher our inner self-esteem, the less we need the approval of others.
+
+Money now becomes subservient to higher goals rather than an end unto itself.
+
+> Without being conscious of what money means to us emotionally, we are at the effect of it. We are being run by our unconscious beliefs about money and all of its associated programs.
+
+The person who suffers from inner poverty is relentlessly driven to accumulate on the material level.
+
+With this inner poverty, there is the whole attitude of selfishness or its correlates of vanity and false pride.
+
+### Happiness
+
+Self-condemnation gets endlessly projected onto the world, taking the form of condemnation from others, which increases further the guilt and feeling of smallness.
+
+Much of the attraction of the world is due to glamorization that we have projected onto it.
+
+### The State of Inner Freedom
 
 
-
-
-# Chapter 18: Introduction
+# Chapter 18: Relationships
 
 ## Summary
 
 ## Notes
+
+### Negative Feelings
+
+We have to realize that almost everyone has these feelings, and that playing ostrich with them, thinking that they are wicked, or that we are guilty will not resolve them.
+
+Instead, we get to 
+1. rise to the level of courage and look at our worst feelings
+2. admit that they are part of the condition of being human, and
+3. remember that we are only held accountable for what we *do* with them--our *actions*.
+
+Our feelings and thoughts always have an effect on other persons and affect our relationships, whether these thoughts or feelings are verbalized, expressed, or kept in our mind. The overall attitudes we hold about another person are influencing that other person's feelings and attitudes about us whether we express them or not
+
+We find that, quite often, the set of feelings we hold about another person is mirrored back to us by their attitude and that, when we change our inner attitude about them, their attitude changes abruptly. [The other person merely mirrors back what we are projecting onto them](https://practicalityandsimplicity.com/posts/eyes-as-mirrors/).
+
+> We are unconsciously influencing others all the time because of the feelings we hold about them.
+
+So, when we are in a state of anger, we are vulnerable to the energy depletion brought by the other person's counter-anger (remember, force results in a backlash). Paradoxically, if we really want to affect other people, then we ought ot really love them. Then, their anger directed at us will boomerang back upon them with no effect upon us.
+
+
 
 # Chapter 19: Introduction
 

@@ -55,6 +55,8 @@ cover:
 - Here's the key when using the letting go technique for problem solving: Don't look for answers; instead, let go of the feelings behind the question
 - More important than money itself are the **emotional gratifications** that we *hope* will be ours with the use of that money.
 - It will also dawn on us that the goals which we thought money would bring us *can be achieved directly*
+- in interpersonal relationships, presume that the other person is conscious and aware of our inner thoughts and feelings.
+- The only purpose for recognizing and admitting a feeling is so that we may relinquish it.
 
 # Preface and Foreword
 ## Notes
@@ -1553,6 +1555,51 @@ We find that, quite often, the set of feelings we hold about another person is m
 > We are unconsciously influencing others all the time because of the feelings we hold about them.
 
 So, when we are in a state of anger, we are vulnerable to the energy depletion brought by the other person's counter-anger (remember, force results in a backlash). Paradoxically, if we really want to affect other people, then we ought ot really love them. Then, their anger directed at us will boomerang back upon them with no effect upon us.
+
+Guilt is the next negative emotion to deal with. Here, the underlying purpose is to placate and escape punishment by self-punishment, and to elicit forgiveness.
+
+By holding onto guilt, we bring on to ourselves all the criticalness of others and their belittlement of us; our low self-esteem is channeled back to us through others in the form of our life.
+
+> If we hold in mind that we are small and unworthy, we elicit those kinds of responses from others. If we think and believe that we are only worthy of a crust of bread, then that is all we get.
+
+If we want others to stop being critical of us and attacking us, the answer is to begin letting go of guilt and all the feelings that have brought it forth.
+
+> It is helpful to use the following advice: in interpersonal relationships, presume that the other person is conscious and aware of our inner thoughts and feelings.
+
+If you think you are small and weak, you are vibrating the idea, "I am a small person, please treat me that way". It is completely optional by own own choosing.
+
+Now switching to fear. The way out of fear is by staring at fear with full gaze, and the feelings they evoke, and then relinquishing those same feelings. You see now there is nothing to fear but fear itself.
+
+Switching to pride. The underlying emotional purpose of pride is to win other people's admiration, validation, and acceptance as a cure to overcome our own inner feelings of worthlessness.
+
+### The Human Condition
+
+The kind of thoughts we have about them is very likely matched with similar thoughts they have about us.
+
+Before searching ourselves for negative feelings, it is best to remember that these feelings are not our real inner self. (side note, as mentioned in Napolean Hill's book, outwitting the devil). They are **learned** programs that we've adopted. This is the human condition, and to honestly observe our feelings requires a nonjudgemental attitude.
+
+> The only purpose for recognizing and admitting a feeling is so that we may relinquish it.
+
+To surrender means that we are willingly relinquishing a feeling by allowing ourselves to experience it without resisting or changing it.
+
+### Positive Feelings
+
+- courage
+- willingness
+- confidence
+- capability
+- "can do"
+- zest
+- humor
+- self-sufficiency
+- creativity
+- win-win situations
+
+All of these positive emotions have the same end goal: effective actions, operation, and accomplishment
+
+In relationships, this makes others feel joined; they will seek out our presence because in it they feel complete, recognized, and content. Their response back to us will be that of love and gratitude for the blessing of our presence. In such a relationship, goals are automatically and effortlessly accomplished. 
+
+Because we are not holding negativity, there is nothing we wish to hide from the other person; this openness allows the other person to drop their defense as well. Nothing is hidden out of guilt nor fear, and there is very conscious psychic connectedness.
 
 
 

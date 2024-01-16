@@ -44,7 +44,7 @@ cover:
 - Because what we hold in minds tends to manifest, the fear of a loss can, paradoxically, be the mechanism of bringing about the loss.
 - Fact: all relationships and possessions in this life are transitory. Anger is often  associated with an inability to accept this fact
 - Serenity prayer: "God, grant me the serenity to accept that things I cannot change, the courage to change the things I can, and the wisdom to know the difference."
-- **laws of consciousness**: (1) We become what we think about (2) we are subject only to what we hold in mind--we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe (6) The unconscious brings to us what it thinks we deserve (7) Our feelings and thoughts always have an effect on other persons and affect our relationships, whether these thoughts or feelings are verbalized, expressed, or kept in our mind. The overall attitudes we hold about another person are influencing that other person's feelings and attitudes about us whether we express them or not
+- **laws of consciousness**: (1) We become what we think about (2) we are subject only to what we hold in mind--we are only subject to a negative thought or belief if we *consciously* say that it *applies* to us (3) fear is healed by love (4) Defensiveness invites attack (5) Love is the ultimate law of the universe (6) The unconscious brings to us what it thinks we deserve (7) Our feelings and thoughts always have an effect on other persons and affect our relationships, whether these thoughts or feelings are verbalized, expressed, or kept in our mind. The overall attitudes we hold about another person are influencing that other person's feelings and attitudes about us whether we express them or not (8) like goes with like
 - Our mind is so powerful that, if we hold in mind a single negative or self-limiting belief (e.g. "my relationships never workout", "I'm always so awkward", "I get anxious"), then that is most likely going to happen in our life.
 - If our mind, by its decision, has the power to make negative things happen in our life, then it has equal power in the opposite, positive direction.
 - So, the issue with discipline, is that it can lead to self-sacrafice, and self-sacrfice can lead to pride, and pride can lead to entitlement, and this entitlement is felt as pressure on the other person. It's all vanity. We have a certain secrete vanity about what we are doing for others, and our pride of achievements makes us vulnerable to anger when our "sacrifice" is not recognized.
@@ -57,6 +57,8 @@ cover:
 - It will also dawn on us that the goals which we thought money would bring us *can be achieved directly*
 - in interpersonal relationships, presume that the other person is conscious and aware of our inner thoughts and feelings.
 - The only purpose for recognizing and admitting a feeling is so that we may relinquish it.
+- If we ever look at a situation and claim that a win-win solution is not possible, then that should warn us that we have some un-surrendered inner feelings blocking a possibly perfect solution 
+- Remember the dictum: the impossible becomes possible as soon as we totally surrendered to the situation
 
 # Preface and Foreword
 ## Notes
@@ -1601,13 +1603,106 @@ In relationships, this makes others feel joined; they will seek out our presence
 
 Because we are not holding negativity, there is nothing we wish to hide from the other person; this openness allows the other person to drop their defense as well. Nothing is hidden out of guilt nor fear, and there is very conscious psychic connectedness.
 
+When we put pressure on other people in order to get what we want, they automatically resist, because we are trying to pressure them. Instead, surrender the feelings we have about what we want from the other person, and let go of the pressures we are putting on them in the form of expectation and desire. They, then, have the psychic space to become agreeable or even to initiate the desired result on their own.
 
+Here are some important points to remember for interpersonal relationships:
+1. First, look at how you secretly, in your head, feel about a person in a given situation 
+2. Presume that the other person is aware of those thoughts and feelings
+3. Put yourself in their place, and see how you would react 
 
-# Chapter 19: Introduction
+The goal of the above steps is to let go of all those feelings until you can go up to a positive thinking-feeling space about the matter.
+
+### Sexual Relationships
+
+The secret is to seek to give, rather than to get.
+
+# Chapter 19: Achievement of Vocational Goals
 
 ## Summary
 
 ## Notes
+
+### Feelings and Abilities
+
+Our thoughts determine the extent to which we manifest our talents and abilities, and they set the quality and quantity of our success and failures.
+
+side note: This is so true. On a smaller scale, when my brothers and I were out with friends enjoying a night out, we had a hand-stance competition. My older brother, who historically was the best at hand-stance, went first. I went next, but right before I went I doubted myself, thinking "well if Josh is 20 seconds, then I will probably do less". And that's exactly what happened; I was 3 seconds shorter than my brother, because my attitude at the beginning of a test determined the successful outcome of the competition. Contrast this with my chess match with papa, I believed I was worthy of winning, because I intentionally practice before facing him again.
+
+> But what is it that determines and influences the direction of our thoughts? It is our feelings that determine and produce the kind of thinking that will lead us to success or failure in any endeavor.
+
+> It is our attitude at the beginning of a test which, more than anything else, will determine its successful outcome
+
+Feelings are the key to the expansion or constriction of our talents, abilities, and actions.
+
+### Negative Feelings Related to work
+
+Negativity does not exist within a situation or event, rather it resides in our *reaction* to the situation **as we see it**. As we *perceive* it.
+
+When negative feelings are acknowledged (rather than suppressed) and then relinquished, the situation can rapidly change in appearance from impossible to easily manageable, workable, and even quite useful.
+
+The **most prominent** negative feeling that blocks success (professional, financial, relationship, etc) is **envy**. The underlying dynamic of envy is that when we see someone else winning or getting praise this triggers our own sense of insecurity.
+
+Through envy, the other person's success and praise triggers *in us* a feeling of lack or inadequacy about ourselves.
+
+> Envy is painful because it arouses our own sense of inadequacy 
+
+We paradoxically resent the person who's success has inadvertently provoked us to choose to feel inferior.
+
+> **unconsciously** this resentment fuels our endless desire for strokes, which, ironically, escapes us because our wantingness and desire repel the very thing we want
+
+As the cycle of envy continues, we feel increasingly dissatisfied and unhappy in our job and alienated from our colleagues. 
+
+This is also the source of the paranoia, "everyone is against me", or "I cannot trust anyone".
+
+So, how do we finally relinquish and escape envy? The answer is by *looking within*.
+
+Why is looking within the solution? Because with envy, we are constantly **looking outward** at others, evaluating their accomplishments and comparing them with ours.
+
+Once we see the cost of negative feelings, and the opportunities they rob us, from success to happiness, we become *willing* to let go of them and whatever little payoff we get from them.
+
+> When we let go of feelings of inadequacy, we will find that envy of others disappears 
+
+### Positive Feelings Related to Work
+
+Nothing needs to be done to acquire positive feelings, as they are part and parcel of our natural state. Positive feelings flow naturally when negative feelings are not in action. Similar to visible ables underneath belly fat, these positive feelings are always within us; they're merely covered up by suppressed negative feelings.
+
+Letting go of negativity frees up inspiration to create an endless flow of creative ideas. There have been writers, artists, and musicians who came into a sudden breakthrough of inspiration as soon as a negative belief or self-limitation was **recognized** *and* **surrendered**; they attribute their success to the letting go of negative feelings through the mechanism of surrender.
+
+### Feelings and the Decision-Making Process
+
+We can simplify the levels of consciousness (the chart from power versus force) into three major states:
+1. inert
+    - apathy, grief, and fear
+    - feelings *interfere* with our concentration on the situation at hand and instead engage us with the concentration of our negative thoughts
+    - "I'm not sure", "I don't think I can"
+    - making decisions becomes difficult 
+2. energetic
+    - desire, anger, and pride
+    - positive thoughts are allowed (through our own choosing) to flow through and mix with the negative feelings
+    - "go getter"
+    - although decicions are made, at times they can be impulsive, driven by the occasional mix of negative feelings, such as the desire to "prove oneself"
+    - Personal self-fain is the primary motivating factor
+    - Many decisions are based on win-lose situation, rather than win-win (because the feelings and welfare of the other person are not taken into account)
+    - We seek to attain success and mastery of the world driven by personal motives
+    - Because their decisions benefit primarily themselves, their success is limited to personal gain 
+3. peaceful
+    - courage, acceptance, and love
+    - the mind is free of worry, and its ability to communicate and concentrate is unimpeded
+    - solutions are win-win based
+    - When everyone's needs in a situation are met, our own needs are fulfilled automatically
+
+> If we ever look at a situation and claim that a win-win solution is not possible, then that should warn us that we have some un-surrendered inner feelings blocking a possibly perfect solution 
+
+> Remember the dictum: the impossible becomes possible as soon as we totally surrendered to the situation
+
+These three states are related to the decision-making process.
+
+> If we ever look at a situation and claim that a win-win solution is not possible, then that should warn us that we have some un-surrendered inner feelings blocking a possibly perfect solution 
+
+> Remember the dictum: the impossible becomes possible as soon as we totally surrendered to the situation
+
+### Feelings and Sales Ability
+
 
 # Chapter 20: Introduction
 

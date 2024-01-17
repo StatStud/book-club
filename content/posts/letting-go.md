@@ -1703,14 +1703,33 @@ These three states are related to the decision-making process.
 
 ### Feelings and Sales Ability
 
+A mind that is concentrated on a positive thought has the power to increase the likelihood that the positive thought will materialize in the world of events.
 
-# Chapter 20: Introduction
+The most successful people in the world are those who hold in mind the highest good of all concerned, including themselves.
+
+They do work which they love, and so they feel continually inspired and creative. They do not seek happiness; they have discovered that happiness is a by-product of doing what they love. A feeling of personal fulfillment comes naturally from their positive contribution to the lives of others, including friends, family, groups, and the world at large.
+
+
+# Chapter 20: Physician, heal thyself
 
 ## Summary
 
 ## Notes
 
-# Chapter 21: Introduction
+### Basic Principles
+
+This is a bulleted list of summary for the book
+
+### The healing of Multiple Diseases
+
+The main gist of this is: surrender your health beliefs
+
+### Healing of vision
+
+yes
+
+
+# Chapter 21: Questions and Answers
 
 ## Summary
 
